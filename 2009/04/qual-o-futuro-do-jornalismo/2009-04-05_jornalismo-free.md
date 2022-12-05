@@ -1,0 +1,15 @@
+---
+title: JORNALISMO FREE
+date: 2009-04-05 12:53:54
+author: Lucas Artur
+debate: Qual o futuro do Jornalismo?
+slug: jornalismo-free
+status: publish 
+type: post
+---
+
+O futuro do jornalismo é justamente esse que o jornal de debates vem fazendo ao longo de sua existência, livre para diversas expressões. O que me parece inegável para o jornalismo em toda sua história, é que profissionais talentosos, na maioria das vezes, são aqueles que não tem um “papel” pendurado na parede de suas casas comprovando, sou jornalista pela universidade tal. Seria no mínimo uma falta de respeito com escritores que foram jornalistas, e nunca tiveram o diploma; no caso de três que agora me recordo ao escrever este artigo, ClariceLispector, Graciliano Ramos, o grande Machado de Assis autores talentosíssimos que trabalharam em jornal com muita competência e talento, em uma época que jornal não era a mera informação, se confundia com literatura.
+A formação acadêmica não prepara ninguém para os imprevistos e maldades que o jornalista se depara quando sai a campo. O que estou fazendo aqui no nosso querido jornal de debates, não deixa de ser jornalismo pelo fato de acrescentar novos pensamentos para o tema proposto, ou em pauta neste jornal. A comunicação no Brasil e no mundo já esta a níveis muito fechados da sociedade, como escolas, bairros, pequenas cidades de interior por exemplo. O numero de rádios comunitárias que foram abertas nos últimos oito anos neste país, é algo extraordinário. Como é vamos exigir um certificado para esse numero enorme de pessoas? De um jeito ou de outro fazem comunicação, em seus meios sociais, muitas com nível escolar de segundo grau ou até menor, produzindo informação, gerando noticia.
+O conceito deste debate, é muito focado para grande mídia, e esquecido da pequena mídia. Querendo ou não ela veio pra ficar. Não pode-se criar uma lei que obriga ao individuo à ter diploma, sendo que a produção de noticias não é feita somente pelo profissional jornalista, mais por toda uma cadeia da sociedade que reinventa os padrões de comunicação, descaracterizando todo sistema linear montado para controlar o nível de informação, circulado em torno da sociedade, a internet é um dos exemplos disso, com seus milhares de blogs espalhados pela rede. Aqueles que pensam em ser escritores que se cuidem, daqui a pouco vão inventar uma lei que para ser escritor é necessário ser membro da ABL (Academia Brasileira de Letras) ou pelo menos formado na faculdade de Letras. A informação, a noticia, podem sim ser levadas por pessoas sem formação acadêmica, e com qualidade. Claro que os bacharéis tem seu prestigio por que estudaram “cientificamente” pode se dizer assim; a estrutura da comunicação e jornalismo. Jornalista é muito mais que períodos de teoria, não que ela seja dispensável para a formação, mais para aqueles que aprendem na prática conseguem o mesmo patamar de experiência, ou até acima dos que são formados, por possuírem talento, a forma mais natural da inteligência humana.
+
+Lucas Artur

@@ -1,0 +1,11 @@
+---
+title: Todo aquelele que comete crime é criminoso.
+date: 2007-09-07 21:00:00
+author: Roberto Laranjeira
+debate: Crime da elite é só brincadeira de mau gosto?
+slug: todo-aquelele-que-comete-crime-e-criminoso
+status: publish 
+type: post
+---
+
+O problema da educação do Brasil não é acadêmico,prova disso são os crimes citados neste debate.Precisamos entender que, para vivermos em sociedade são necessarias normas,regras e leis sendo cumpridas.Apartir do momento em que esses valores passam a ser desmoralizados, todos nos tornamos refens da anarquia,não existindo igualdades ou diferenças sociais.Todos sem exeção, sofremos as consequencias maléficas tanto do crime organizado como do mau funcionario publico,crime é crime.Não existe crime grande ou pequeno,crime é crime, o qual deve ser punido na intensão não só da correção da conduta do criminoso, mas tambem como forma educativa para a sociedade.Todos sem distinção, estamos sofrendo as consequencias da anarquia que alguns maus cidadãos estavam tentando instalar no nosso país.Em todos os seguimentos de nossa sociedade encontramos pessoas sem o menor preparo para o convivio social ,porem certos da impunidade alguns com maior poder aquisitivo muitas vezes se mostram mais despreparados, vejam só o numero de processos contra os parlamentares dos nossos tres poderes.A EDUCAÇÃO se faz com bons exemplos,de nada vale uma posição social numa sociedade doente,onde o medo pela falta de segurança nos tornam prisioneiros em nossos lares desconfiando até dos mais próximos.Vamos nos unir no proprósito de transformar o Brasil em uma grande nação, onde a solidariedade enraizada em nossa história de missigenação de raças,nos leve a ser o exemplo de sociedade para o mundo.Vivemos no melhor e mais rico país do mundo,vejam nossas maravilhas naturais,clima totalmente favoravel ,um povo alegre,trabalhador não podemos permitir, que uma minoria formada de egoistas mau educados ,continuem contaminando nossa sociedade com seus maus exemplos.Vamos continuar usando nosso voto,POLICIAS,CONSEGs,DISQUE DENUNCIA,MINISTÉRIO PUBLICO,CORREGEDORIAS,SERVIÇO RESERVADO e tudo que nossa leis nos garantem enquanto cidadãos de bem.Percebo no dia a dia que existe uma maioria esmagadora de funcionarios publicos, lutando para melhorar este país,pelo simples fato de tambem serem brasileiros.

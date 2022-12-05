@@ -1,0 +1,13 @@
+---
+title: Escravidão e contrabando nos mercados
+date: 2007-12-05 22:00:00
+author: Roberto Laranjeira
+debate: A China deve ser reconhecida pelo Brasil como economia de mercado?
+slug: escravidao-e-contrabando-nos-mercados
+status: publish 
+type: post
+---
+
+Devemos aceitar comercio com paises onde lideres tratam seus povos como escravos, e que qualidade de vida se resume a trabalhar para comer? As importações brasileiras são maiores em relação ao que importamos da China ,por ser impossivel calcular as fortunas em produtos Chineses que entram em nosso país contrabandeados.O que é vendido por contrabando no Brasil, volta para o Governo Chines em forma de riqueza da mesma maneira que as suas exportações legalizadas.Então devemos considerar que não podemos competir com a industria Chinesa, visto que para isso deveriamos implantar novamente a escravidão no Brasil alem de dar isenção total de impostos a toda industria e comercio nacional.Defendo a tese que contrabando é a grande mola para o crescimento turbinado de certas economias. Os próprios governos nomeiam gerentes, que tem a missão de se instalar em paises com potencial comercial, e criar redes de comercio clandestino, para receptar e escoar os produtos produzidos pela população escrava tanto no seu país , como nos porões dos navios ancorados por esse mundo a fora.Só isso para justificar o poder economico de certos contrabandistas ja famosos nos noticiarios policiais. Em países onde impera o facismo, as máfias só sobrevivem se atenderem aos interesses dos Ditadores.Se no Brasil sofremos com a ação das máfias do contrabando, os paises produtores enriquecem e ainda gritam para o mundo que estão sendo prejudicados pois importam mais do Brasil, doque exportam.A questão do comercio com a China deve ser analizada de maneira entender que muitos dos produtos que entram no Brasil, só o fazem pelo preço baixo ao custo de acabar com nossas pequenas e médias empresas, e aos saques dos nosso cofres publicos através da sonegação fiscal .Assim como o Mundo fiscaliza o que fazemos com a Amazonia, devemos tambem questionar os países com que mantemos relações comerciais qual o preço do seu desenvolvimento economico em relação ao meio ambiente,pois não adianta lucrarmos moedas em troca de falta de oxigenio ou agua.Esses paises praticamente destruiram seus ecosistemas na busca pelo desenvolvimento industrial,com isso tem responsabilidade total quanto ao aquecimento global ,que esta colocando em risco todo o planeta.Devemos incentivar o comércio saudavel, onde a ética e os pricipios Democráticos sejam as armas na luta pela conquista da qualidade de vida ideal, para todos os seres do planeta.  
+
+EDUCAÇÃO,SAÚDE E SOLIDARIEDADE.

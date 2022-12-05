@@ -1,0 +1,18 @@
+---
+title: O Presidente posou de coitadinho no caso do dossiê
+date: 2006-10-23 21:00:00
+author: dep.julio.redecker
+debate: JD no Congresso
+slug: o-presidente-posou-de-coitadinho-no-caso-do-dossie
+status: publish 
+type: post
+---
+
+    (...) O Brasil tem que discutir ética. O Presidente da República não gosta de discutir ética, (...) tem que falar do dossiê, da compra de provas falsas, o que prejudicaria a candidatura de José Serra em São Paulo, beneficiando Aloizio Mercadante e o Presidente Lula. (...) E o Presidente posou de coitadinho, alegando que nada tinha a ver com o que aconteceu. Tinha tanta certeza de sua vitória que usou o que havia de melhor ao seu redor - e não é muita coisa - para construir com o Sr. Gedimar, com o cozinheiro, com o segurança pessoal, o Freud, uma estrutura de mentira alicerçada em 1 milhão e 700 mil reais levados ao hotel Ibis a fim de comprar um dossiê fajuto.         Não foi diferente o que ocorreu com da lista de Furnas, que tinha por objetivo enxovalhar a honra de vários Parlamentares da Casa e do Congresso Nacional.(...)   
+    Temos o exemplo dos cartões de crédito da Presidência da República. O dinheiro vivo sacado na boca do caixa foi parar onde? Trataram o assunto com segredo(...). O Presidente deveria ser o primeiro interessado em demonstrar onde aplicou o dinheiro sacado na boca do caixa pelo mundo afora com cartão de crédito da Presidência da República. (...) Esse dinheiro não é do Presidente Lula, da D. Marisa ou da comitiva que o acompanha. O dinheiro é do povo brasileiro, que paga impostos.   
+    Pagamos impostos como em nenhum outro país. A nossa carga tributária é o dobro da carga da Argentina, do México e da Coréia. No Brasil cobra-se por serviços que não são entregues. (...) E ainda vêm dizer que o Bolsa Família resolve tudo. O Governo tinha de ter vergonha e, além do Bolsa Família, fazer programas para a promoção humana, dar profissão, oportunidade e expectativa de um futuro melhor para a população carente. Fala-se no País agora que há uma luta de classes. O Presidente da República parece que não é o Presidente de todos os brasileiros, mas um Presidente dos pobres contra os ricos. Se a moda pega, ele não vai se dar mais com seu filho, que agora é milionário, como afirma a capa da revista Veja. Ele é o "Ronaldinho" dos negócios! De monitor de zoológico, ele partiu para o sucesso empresarial alicerçado em uma empresa concessionária de serviço público, de onde captou 15 milhões de reais para criar, com seu gênio midiático, novas formas de ganhar dinheiro na área da televisão, na promoção de programas para a Internet e outras coisas.(...)         Nunca aconteceu tanta corrupção neste País como hoje! E tudo patrocinado pelos amigos do Presidente da República. São companheiros de 10, 12, 15 ou 20 anos ao lado do Presidente Lula, que todos os dias estão nas manchetes dos jornais.(...) Vejam o caso de José Dirceu, Freud Godoy e Gedimar Passos. Até me esqueço os nomes de tantos os que estão envolvidos em falcatruas, malversação de dinheiro público, roubo, malandragem, sacanagem e em festas nababescas.   
+    Mas um dia isso vai acabar. Podemos iludir o povo por algum tempo, mas sabemos que ninguém ilude o povo por todo o tempo. Essa farsa do PT no País e essa corrupção, com certeza, vão chegar ao fim. Esta Casa tem que debater e fiscalizar. As instituições públicas de fiscalização e de defesa do interesse público têm que se manifestar. A sociedade organizada não pode mais se calar. (...)  
+  
+ Discurso de 23/10/2006  
+  
+ Leia a íntegra do discurso [aqui](http://www.camara.gov.br/internet/plenario/notas/ordinari/v231006.pdf).

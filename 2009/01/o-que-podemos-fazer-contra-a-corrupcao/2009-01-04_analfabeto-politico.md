@@ -1,0 +1,11 @@
+---
+title: Analfabeto politico
+date: 2009-01-04 12:31:17
+author: Mostradanus
+debate: O que podemos fazer contra a corrupção?
+slug: analfabeto-politico
+status: publish 
+type: post
+---
+
+Em primeiro lugar é preciso acabar com idéia de que o voto é obrigatório. Ninguém no Brasil é obrigado a votar. Existe a lei que obriga o cidadão a comparecer no local de votação e comprovar sua presença, pois somente assim poderá obter empréstimos públicos, concursos, participar de concorrências, como empresário, enfim um serie de coisas. Posto assim, temos que ter a consciência de que uma pessoa que lá esteja para nos representar deva possuir no mínimo algum conhecimento profissional e no mínimo saber ler e escrever para que seja possível analisar com competência projetos de Leis e outros assuntos atinentes ao interesse coletivo. Muitas pessoas que se candidatam a cargos de vereador, Prefeito, deputado, escancaram seus objetivos pessoais, como salário e aposentadoria o que é errado e muito mais errado ainda, o eleitor que vota nesse tipo de gente. O nosso executivo portanto, na área municipal e estadual precisa ser renovado. Dirão então as pessoas que lerem esse texto: "Mas o nosso Presidente é semi analfabeto". Isto é um exagero, pois Lula tem uma carreira política brilhante, com um currículo e histórico de muitas lutas e conquistas em prol do trabalhador brasileiro. Portanto, ele tem uma característica própria de não ser candidato para defender interesses de grandes grupos financeiros, como foi o caso de Collor de Melo e FHC e nesse tempo, estudou e melhorou muito seus conhecimentos e ganhou o respeito de todo povo brasileiro. Quem fala mal do nosso presidente é uma minoria conservadora, retrógada e que faz parte da antiga TFP, hoje disfarçada de Assoc. de Fátima e que recruta jovens incautos para combater a nossa democracia que é na verdade a maior conquista de todos os tempos. Esses jovens tornam-se tão devotos à causa da TFP (tradição, familia e propriedade) que são incapazes de uma emoção de por exemplo dar um abraço apertado no irmão e são treinados para o absurdo de apenas estenderem a mão para um cumprimento formal. Isto é uma palhaçada e a policia deveria fechar esse tipo de organização.

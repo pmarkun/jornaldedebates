@@ -1,0 +1,11 @@
+---
+title: Há mérito entre desiguais?
+date: 2006-11-20 22:00:00
+author: renato.amorim
+debate: Cotas para negros nas universidades: justiça ou segregação? 
+slug: ha-merito-entre-desiguais
+status: publish 
+type: post
+---
+
+Antes de mais nada, acredito que o debate sobre a pertinência ou não de implantação de cotas para os afro-descendentes é o melhor caminho para o consenso. Sem este, não será possível estabelecer um Brasil mais justo. Dito isso, acho importante frisar que os programas de cotas não devem ser considerados isoladamente. Antes, devem ser vistos como iniciativas a mais dentro de um amplo esforço para se resgatar a identidade da comunidade negra. Isso sim é que está em jogo. Portanto, é bem mais que ocupar ou não uma vaga na universidade. Posso dizer que sou negro e bem sucedido, não proveniente do meio artísitico, tampouco do esporte. Sou fruto dos esforços dos meus pais, do meu próprio e de tantos outros que me ajudaram em algum momento da vida. Estudei toda a minha em escola pública da periferia, mas fiz a minha graduação em Economia pela Universidade de Brasília, uma das mais bem conceituadas do país. Por isso mesmo, sei que sou uma exceção à regra. Em geral, pessoas com o meu histórico não chegam muito longe. Meus amigos negros de infância não chegaram. Nenhum deles. Embora não tenha me servido de benefícios alguns semelhantes ao programa de cotas, penso que eles são importantes porque corrigem uma desigualdade na competição. Não podemos pegar uma pessoa que passou a vida inteira acorrentada, colocá-la numa pista para correr com outros e dizer que todos tem as mesmas oportunidades. A reserva de cotas não visa simplesmente beneficiar alguém pela sua cor de pele. Tem o objetivo de dar-lhe uma vantagem competitiva que lhe permita competir com aqueles que sempre tiveram oportunidades. O reconhecimento do mérito é importante. Mas é possível se falar em mérito entre pessoas que estão em desigualdades de condições? Não. Absolutamente, não. Se em um grupo todos tiveram as mesmas oportunidades e só uns poucos se destacaram, estes tiveram mérito. Agora, se essas pessoas competem com outras que não tiveram as mesmas chances, onde está o mérito? Enfim, meu desejo é que a discussão se amplie e possibilite à sociedade brasileira como um todo chegar a um consenso que promova justiça e desenvolvimento.

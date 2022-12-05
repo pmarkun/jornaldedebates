@@ -1,0 +1,11 @@
+---
+title: Aumento de Salários dos Parlamentares
+date: 2006-12-22 22:00:00
+author: faustino.santana
+debate: Salários dos Parlamentares: como definir?
+slug: aumento-de-salarios-dos-parlamentares
+status: publish 
+type: post
+---
+
+Senhor editor. É muito importante esse trabalho que o Ig e a a Redação deste conceituado jornal estão realizando. Parabéns! sempre que puder participarei. Bem, sobre o aumento dos Parlamentares: Como disse em resumo. O nosso Presidente que está tendo a chance de se recuperar deste seu desastroso 1º mandato, desastroso porque não cumpriu o que prometeu em campanha. Não respeitou a sua ideologia. Se entregou aos banqueiros. Mas se elegeu porque deu esmola (Bolsa Família) a população mais pobre, já desesperada e sem alternativa. Me parece que se o país continuar a crescer menos que 3%, e não conseguir chegar a 5%, o sistema que aí está não irá aguentar. Para se moralizar o Congresso, precisa 1º moralizar os políticos com regras claras. O nosso país não pode continuar sendo um balcão de negócios para interesses pessoais. Um exemplo: a crise da aviação brasileira. O Ministro da Defesa, Sr. Waldir Pires que se quer teve o trabalho de verificar o que o seu antecessor tinha feito. O documento que falava dos investimentos no setor e que não foram realizados, já alertava esse problema. Os controladores de vôos estão cobertos de razão. Como trabalhar sem condições psicológicas e financeiras, zelando por milhões de vidas a todo segundo, sem o devido reconhecimento? O nosso Congresso infelizmente não renovou, pelo contrário, voltaram antigos políticos, cujo passado deixam dúvidas, quanto ao que poderão realizar. Nós pais de família que pregamos a moral e o bom exemplo, nos sentimos perdidos, desiludidos, com raiva. Coisas terríveis estão acontecendo. Tudo por causa desses maus governos que se perpetuam e criaram uma cultura terrível: que todo brasileiro é corrupto. Que qualquer um que quizer ser político tem que ser corrupto. A Amazonia possui apenas 23% de sua floresta intacta. E os políticos são os principais responsáveis. Como conceder aumento, se o que eles tem feito é destruir e iludir o povo. Lamentável o Presidente Aldo Rebelo lutar pelo aumento dos parlamentares. Ou ele está querendo se reeleger às custas do dinheiro do povo. Isso é DITADURA. O povo não aceita. Obrigado.

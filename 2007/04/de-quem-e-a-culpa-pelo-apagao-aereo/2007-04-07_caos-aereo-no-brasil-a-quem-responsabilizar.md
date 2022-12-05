@@ -1,0 +1,11 @@
+---
+title: Caos aéreo no Brasil; A quem responsabilizar?
+date: 2007-04-07 21:00:00
+author: juliano.alves
+debate: De quem é a culpa pelo apagão aéreo?
+slug: caos-aereo-no-brasil-a-quem-responsabilizar
+status: publish 
+type: post
+---
+
+Como o próprio Presidente Lula costuma dizer, nunca antes na história deste pais se viu falar tanto em assuntos relacionados ao caos que se instalou na aviação comercial no Brasil. Após o trágico acidente da Gol, hoje não temos nenhuma medida efetiva e concreta tomada pelo governo para apurar os fatos e contornar os problemas do setor aéreo. Para piorar a situação tivemos sucessivas greves realizadas pelos controladores de vôo subordinados a Aeronáutica, que segundo as leis atuais se enquadram dentro dos chamados serviços essenciais. Após dias e dias de atrasos e cancelamentos, parece que a situação começa a se normalizar, mas após todos estes eventos negativos podemos diagnosticar a falta de preparo do governo para lidar com questões críticas e que necessitem de uma intervenção imediata. O governo de certa forma "pisou" em cima da autoridade da Aeronáutica, declarando que todos os grevistas não seriam punidos e analisando a repercussão desta declaração dentro da sociedade civil e principalmente dentro do comando das Forças Armadas volta atrás e mostra mais uma vez a sua falta de preparo para crises. Parece que os motinados serão atendidos na maioria de suas solicitações, falta agora saber se isto não abrirá um precedente para outras classes também se rebelarem contra o governo e desta forma caminharmos para uma sociedade já mais anarquizada que a atual. A Aeronáutica como todas as outras forças militares que constituem as Forças Armadas agonizam com a falta de recursos e descaso das autoridades. Em meu ponto de vista e de vários outros brasileiros a crise é culpa em primeiro lugar do governo, que se mostrou passivo após o acidente da Gol que não tomou as medidas para a solução imediata dos problemas diagnosticados dentro do setor e ainda a falta autoridade junto aos controladores e que sustentam a possibilidade de ficar impune após seus crimes contra a nação...este é infelizmente nosso pais impunidade que gera impunidade, impunidade que gera descaso, impunidade que gera violência, impunidade que gera caos... Será que as vidas perdidas no Vôo 1907 serão em vão??

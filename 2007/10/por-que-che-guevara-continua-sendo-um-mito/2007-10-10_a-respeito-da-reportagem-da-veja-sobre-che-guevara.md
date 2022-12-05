@@ -1,0 +1,11 @@
+---
+title: A respeito da reportagem da Veja sobre Che Guevara
+date: 2007-10-10 21:00:00
+author: ricardo.costa4
+debate: Por que Che Guevara continua sendo um mito?
+slug: a-respeito-da-reportagem-da-veja-sobre-che-guevara
+status: publish 
+type: post
+---
+
+A revista Veja traz uma reportagem nesta semana intitulada "Che, quando morre a farsa, nasce o mito". A primeira sensação que me deu ao ler este título foi de indignação, de revolta. No entanto, pensei eu, é necessário tolerância com a opinião alheia, por mais absurda que nos pareça ser. Venho, portanto, colocar minha opinião sobre o título da matéria. Sim, apenas sobre o título, pois confesso que não tenho mais esôfago para ler matérias deste tipo. Pois bem, imagino que na citada reportagem tenha se buscado desqualificar todas as conquistas de Che. Com certeza foi dito que sua grande vitória "A Revolução Cubana" foi um fracasso pois resultou na ditadura de Fidel Castro. Eu também não sou a favor de ditaduras e me parece que também Che que dedicou sua vida à luta pela liberdade do povo. Pois bem, é a partir daí que afirmo categoricamente que Che Guevara não foi uma farsa. Che foi um revolucionário que sonhou com uma América Latina unida e livre. Provas da força e da crença em seus ideais me parecem desnecessárias pois estamos falando de alguém que largou uma carreira médica e um cargo de Ministro de Estado para viver uma vida de desconforto e risco lutando contra um sistema perverso que exclui e aprisiona milhões de pessoas no nosso continente. Apesar de acreditar que suas conquistas objetivas não foram poucas, incluindo entre elas a derrubada da ditadura de Fulgêncio Batista em Cuba, devo ressaltar o valor da herança subjetiva deixada ao mundo por ele. Uma herança de valores, como a coragem, o inconformismo, a abnegação e o idealismo que não foram uma farsa e que são mais importantes que um triunfo numa batalha pois deixam um legado de esperança e de inspiração para toda a humanidade. São exemplos como o dele que inspiram aqueles que são capazes de sonhar com uma sociedade mais igualitária e solidária em que não sejamos obrigados a conviver com tanta injustiça e miséria. E talvez seja a força que seu legado dá a este sonho que incomode tantas pessoas que vivem confortavelmente uma vida vazia de valores onde o capitalismo consumista consegue fazer sentido.

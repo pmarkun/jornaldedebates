@@ -1,0 +1,11 @@
+---
+title: Se não tivesse ali, nenhum predio para ele golidir, o que teria acontecido?
+date: 2007-07-17 21:00:00
+author: raimundo.junior2
+debate: É conveniente aeroportos no meio da cidade?
+slug: se-nao-tivesse-ali-nenhum-predio-para-ele-golidir-o-que-teria-acontecido
+status: publish 
+type: post
+---
+
+Tudo mundo sabe que Congonhas não da mais para funcionar. agora porque ainda ele esta ali? todo areoporto tem que ter um bom espaço para quando os aviões saem da pista eles deslizem em lugar seguro. ou seja grama, brita e coisas que os tecnicos devem saber mais que eu. caramba será que depois disto os reponsaveis ainda vão deixar esse lugar perigoso, tem muito lugar em São Paulo. vamos fazer outro Congonhas, vamos tomar por exemplo as corridas de formula 1, quando os carros saem da pista na maioria da vezes tem lugar para eles pararem, quando não tem eles explodem no muro de concreto o que aconteceu com o avião da Tam. se aqule predio não tivesse ali isso teria sido evitado. então se não tira os predios o jeito é tirar o aeroporto. isto é muito dificil mais no brasil tudo é burocracia, burocracia para purni politicos corruptos, burocracia para tirar documentos, burocracia para atendimento hospitalar, burocracia para os familiares da vitimas terem noticias de seus ente queridos, burocracia para tudo vivemos no pais das burocracias e dos acidentes aéreos, agora vamos ver o inicio de uma novela tragica onde tem muitos responsaveis mais nenhum culpado. esta novela da vida real custou a vida de dezenas de pessoas, e ainda muita gente vai esta sofrendo a perda de seus parentes e a agonia de um processo que parece que não vai ter mais fim. tivemos nos ultimos meses um festival de derragens em Congonhas e a culpa era da chuva, então vamos fazer um novo Congonhas no sertão Nordestino. espero que este acidente não fique como os outros apenas em mais um episodio de imrresponsabilidade e acusações de um lado para o outro. já é o terceiro de grande proporções nos ultimos 11 anos mas 400 mortos. e um pais que uma corja de irresponsaveis não tem voz ativa para dizer "vamos desartiva congonhas", só ouvimos a culpa foi da pista ou da chuva se não poblema no avião, a culpa foi de muita gente onde poucos conhecermos.

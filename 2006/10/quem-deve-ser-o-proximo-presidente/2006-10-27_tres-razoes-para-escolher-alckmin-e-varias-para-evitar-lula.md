@@ -1,0 +1,31 @@
+---
+title: Três razões para escolher Alckmin e várias para evitar Lula
+date: 2006-10-27 21:00:00
+author: jose.anibal
+debate: Quem deve ser o próximo presidente?
+slug: tres-razoes-para-escolher-alckmin-e-varias-para-evitar-lula
+status: publish 
+type: post
+---
+
+A disputa em dois turnos é a melhor oportunidade para o eleitor comparar os candidatos e decidir sua escolha em cima de aspectos objetivos e de forma mais racional. Na primeira rodada, o excesso de candidatos, as disputas proporcionais e a falta de conhecimento da maioria das biografias e propostas dificultam a decisão do eleitor. Já no segundo turno existem apenas duas candidaturas, cujos currículos e programas já são bem conhecidos pela maioria do público. Cabe à população comparar o que cada um tem para mostrar e tomar a decisão que melhor atenda suas perspectivas de um país melhor e mais justo.
+
+ É por isso que defendo, desde o ano passado, a candidatura de Geraldo Alckmin à Presidência. Sempre entendi que o ex-governador de São Paulo seria a melhor alternativa ao atual presidente, chefe de um governo fraco, inepto, incompetente e, no mínimo, conivente com o maior esquema de corrupção do
+país nas últimas décadas. Alckmin representa a antítese de tudo o que Lula personificou nesses três anos nove meses de mandato. O ex-governador é sério, austero, bom gestor, transparente e coerente entre aquilo que diz e que faz.
+
+ Como, porém, a questão do segundo turno é mais objetiva, aqui vão três boas razões para escolher Geraldo Alckmin, e não Lula, no próximo dia 29:
+
+1-) Vida pública - Alckmin tem mais de 30 anos de vida pública. Foi prefeito, deputado estadual, deputado federal, presidente estadual do PSDB, vice-governador e governador do Estado mais importante do Brasil. No Congresso, foi um dos parlamentares mais produtivos e autor de várias propostas importantes, entre as quais o Código de Defesa do Consumidor. Em todos esses cargos por onde passou, Alckmin não tem uma denúncia, um
+escândalo para manchar sua biografia. Seu adversário, eterno candidato, não foi outra coisa nos últimos 20 anos. Com exceção da Assembléia Nacional Constituinte, de 1988, por onde passou sem nenhum brilho, não teve qualquer outra experiência no Legislativo ou Executivo antes de se eleger em 2002.
+Sua inexperiência e falta de preparo explicam a falta de criatividade de um governo que fez uma cópia piorada do modelo anterior, surfando na boa onda da economia internacional. Já a sede de poder pelos 20 anos de oposição explica o aparelhamento da máquina pública e o nível inédito de corrupção do governo Lula. Ao contrário das administrações comandadas por Alckmin, Lula coleciona uma lista impressionante de escândalos e denúncias pelo maior assalto já cometido contra os cofres públicos deste país.
+
+2-) Propostas para o crescimento - Pela diferença entre o que cada um fez no seu governo, Alckmin tem a receita e as ferramentas necessárias para promover o desenvolvimento e recolocar o país no rumo do Primeiro Mundo. Enquanto Lula inchou a máquina e elevou o gasto público com viagens,
+mordomias e outras despesas correntes, Alckmin fez o inverso no governo paulista. Desde o início do governo Mário Covas, ele foi co-piloto e depois piloto do maior ajuste fiscal já feito neste país. De um déficit herdado de 26%, o governo de São Paulo chegou a zero, cortando, enxugando e reorganizando a máquina. Lula aumentou a carga tributária e os juros para bancar a farra da máquina petista. Por isso, agora não tem o que dizer quando lhe perguntam como vai cortar gastos. Ao contrário, Alckmin cortou
+impostos e chegou a zerar o ICMS de alguns produtos para estimular o desenvolvimento no Estado. Foi assim que, em 2004, São Paulo cresceu 7,4% enquanto o Brasil teve apenas 5,7% de crescimento. E é assim que Alckmin vai estimular o desenvolvimento nos próximos anos: cortando o gasto público -
+com redução drástica de cargos, ministérios, despesas correntes, mordomias e desperdícios - e fechando o ralo da corrupção. Com uma política austera será possível estabelecer uma meta de investimentos sem aumentar impostos.
+3-) União x divisão - Sem bravatas ou qualquer elogio à ignorância, Alckmin é médico, mas acima de tudo é um cidadão simples, do interior, com perfil muito próximo ao brasileiro comum, que não tem qualquer preconceito de classe, raça ou origem. Assim como a grande maioria da população brasileira,
+valoriza o estudo e o trabalho como caminhos para uma vida melhor. Seu patrimônio é modesto e seus hábitos, espartanos. O jeito cordato, embora firme, sugere conciliação, conversa, entendimento. Do outro lado, Lula muitas vezes parece estar numa assembléia sindical, com gritos, bravatas, palavrões e diatribes contra seus auxiliares. Usa e abusa do seu pouco grau
+de instrução como se isso fosse um trunfo num país cuja maioria da população ainda tem pouco acesso à educação. Esquece que, pelo menos ele, teve uma condição melhor do que a maioria para estudar e não aproveitou. Seus erros de português parecem mais uma jogada de marketing para reforçar sua origem social e ganhar maiores simpatias nesse eleitorado. Ao assumir o discurso de "candidato dos pobres" e tentar cunhar o adversário como "candidato dos ricos" aposta na divisão do país entre classes sociais. Alckmin, ao contrário, sinaliza para a união entre todos os brasileiros. Um divide, o outro soma.
+
+ Estas são razões muito objetivas para se escolher Geraldo Alckmin, mas também há um aspecto que não pode passar despercebido por todos aqueles que prezam a ética na política e na vida: o exemplo. São os bons exemplos que irão formar e moldar as próximas gerações e o futuro desse país. Que
+herança deixaremos para as futuras gerações se a corrupção, o roubo e a mentira forem consagrados pela impunidade e o descaso? O que pode ser construído em cima de pilares tão corroídos? Nossos filhos e netos não podem achar que roubar e mentir vale a pena, porque depois nada acontece e os responsáveis ainda são premiados com um novo mandato. Esta é a verdadeira questão que precisará ser respondida pelo eleitor no próximo domingo. E ao pensar nisso, o dono do voto terá de fazer uma outra reflexão: será que o país agüenta mais quatro anos assim?

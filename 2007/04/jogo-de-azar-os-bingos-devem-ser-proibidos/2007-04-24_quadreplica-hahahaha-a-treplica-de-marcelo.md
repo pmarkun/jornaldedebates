@@ -1,0 +1,13 @@
+---
+title: QUADRÉplica (hahahaha) à Tréplica de Marcelo.
+date: 2007-04-24 21:00:00
+author: alan.reis
+debate: Jogo de azar: os bingos devem ser proibidos?
+em_resposta: Como se forja um país
+em_resposta_user: marcelo.idiarte
+slug: quadreplica-hahahaha-a-treplica-de-marcelo
+status: publish 
+type: post
+---
+
+Marcelo,Acabo de ter uma prova viva sobre a influência da mídia sobre os acontecimentos na Cote D´Azur jurídica (e, como costuma bombar atualmente, com direito a luzes de boite e Benflogin, sucessor lícito e natural do LSD). A rede de televisão de minha cidade noticiando um motim ocorrido na delegacia. Há mais ou menos uma hora, apresentava um caos, com pessoas feridas e batalhão do CORE devidamente ARMADO e ENCACHORRADO invadindo o local por ordem da Juíza; entretanto, há quinze minutos eles começaram a noticiar a CALMA na delegacia (embora continue a mesma coisa, meu pai lá trabalha), pois, claro, o caos vinha de encontro com o interesse da faculdade de Medicina de Teresópolis (eu sei, pois EU trabalhei lá). Pois bem, toda uma alteração de vertentes, pois era desinteressante mostrar a realidade. Nessa ótica que a mídia opera, em minha modesta opinião: distorcendo fatos, exagerando uns e empurrando outros - de mesma ou maior importância - para debaixo de um tapete sujo. Não venho negar dados históricos sobre a corrupção no Judiciário. Este sempre foi um poder supra em relação aos demais e, acreditar hoje na maldita teoria dos "Balanços e Contrapesos" é acreditar em coelhinho da páscoa. A partir do momento que se legitima uma das funções estatais a fiscalizar as demais, podendo, inclusive, deslegitimar os Poderes Executivo e Legislativo, anulando seus atos ou declarando inconstitucionalidades a torto e a direito, é fato que este poder tem "algo a mais", vindo ele a ser o Poder Moderador do século XXI; e o pior: construído pela Constituição de 88. E também não vou negar (embora eu tenha certo pavor) que há muita sujeira neste país (o que, indubitavelmente, é herança de toda a história) - mas que muita coisa também é manipulada pela mídia. Então, não existe "de dentro pra fora" e "de fora pra dentro". Está tudo inserido no mesmo Caldeirão, e a podreira borbulha, borbulha.PS: Gostei de seu ponto de vista sobre a natureza social dos institutos trazidos pela CF/88 ser um complemento do teatro (dos vampiros) que vem a privilegiar tão-só a aristocracia. Mas, de qualquer forma, há uma evolução, pois a sociedade ainda pode se valer (de alguma maneira) do aparelho estatal - e, ao lado da hipossuficiência, que atrapalha, claro, tal acesso, está a ignorância (proposital) das pessoas, que não se interessam por isso e deixam tudo do jeito que está.

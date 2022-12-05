@@ -1,0 +1,33 @@
+---
+title: Será que sou da paz?
+date: 2007-02-09 22:00:00
+author: wanderley.coelho
+debate: A maioridade penal deve ser reduzida no Brasil?
+slug: sera-que-sou-da-paz
+status: publish 
+type: post
+---
+
+Bom Dia a Todos!!!  
+  
+Tenho muito medo de externar minhas opiniões, uma vez que sempre se gera polêmica quando alguém o faz...  
+Eu gostaria, no entanto de fazer algumas perguntas a vcs todos...  
+Perguntas que já fiz a mim mesmo e SEI as boas respostas, portanto PENSEM sobre as SUAS respostas, antes de externá-las...  
+  
+1 - Porque, qual o motivo, desculpa ou falsa desculpa, para UM POLÍTICO recusar ajuda de uma força militar, policial, humanitária, qualquer que seja ela, quando a situação está um caos e ela é REALMENTE necessária ???  
+  
+2 - Porque, alguns só afirmam que "sou da paz", juntam as mãozinhas em formato de pombinha da paz ( que coisa mais fofa, né gente?) em frente às cameras de TV, repórteres de radio, etc , e TEM Guarda-costas, carros blindados e casas com muros de 12 metros ???  
+  
+3 - Vc, após ter sua filha estuprada por um menor, sua esposa amarrada à cabeceira de sua cama e agradida, estuprada e abandonada, ou vc ser pego num beco escuro, colocado num porta malas, levado ao matinho e ser estuprado, apanhar feito cachorro vira-latas em dia de feira livre, por um bando de "adolescentes (enormes, anabolizados e com certeza com um "pau maior que o seu", como diz Neto Trindade na letra de "Erva Danada!) - VAI TER CORAGEM de me DIZER que é CONTRA a maioridade penal, a favor do desarmamento ( agora é RECADASTRAMENTO COMPULSÓRIO...) e contra a "violência policial" contra os BANDIDOS ???  
+  
+4 - Todo mundo que conheço, quando "olhou no olho" de um .38, passou da fase de "não à violência", para a fase do "quero uma arma, querou um policial no meu bairro, quero os bandidos presos !!!"... Vc não mudaria, após encarar um .38 ???  
+Pense bem, antes de juntar as mãozinha em forma de pombinha, pois algum adolescente inicente e sem escola, pode dar um tiro de 12´´ nela, só para "ver o tombo da bichinha"...  
+E para finalizar, deixo vcs, com uma das maiores verdades que já ouvi na minha jovem vida... Eu estava numa Delegacia de Polícia, para fazer um documento, sei lá, quando um "agito" no corredor, me chamou a atenção... Com cuidado, arrisquei um olho. Caracas... Tinha um "guarda-roupas" 4 portas, algemado, com alguns hematomas pela cara feia, discutindo com uma velhinha !!! Fiquei escandalixado com a cena... Até que ouvi o que o rapaz, num raro, lindo e louvável MOMENTO de LUCIDEZ, estava dizendo, aos berros para a velha e respeitável senhora...  
+Ele berrava: "A culpa é SUA !!! Eu só sou BANDIDO por SUA CULPA !!! QUe diabos de MÃE vc foi para mim ??? Nunca me deu uma BRONCA, Nunca me DEU um TAPA-NA-BUNDA !!! NADA !!! Olha meu irmão... Nele, a sra sempre pôs ordem e ele é honesto... Ne mim, NÃO !!!  
+  
+Naquele momento, fiquei com muito dó.. DO VAGABUNDO !!! Para a velha, deixei meu sincero comentário, com um elogio à "honestidade repentina do garboso infante": Parabénsa Sra !! Seu filho TEM TODA a RAZÃO !!! A CULPA É sua !!!   
+E fui embora, satisfeito como nunca, por ter visto pelo menos uma parte da "justiça" sendo feita...  
+Cuidado com o que vc faz com sua vida e a vida de seus filhos...  
+Cuidado com as decisões "apressadas" sejam contra ou a favor de algo...  
+Cuidado com o que vc deseja para os outros... Vc pode receber em dobro...   
+Cuidado com o "menino" na esquina... Ele pode estar de olho em vc...

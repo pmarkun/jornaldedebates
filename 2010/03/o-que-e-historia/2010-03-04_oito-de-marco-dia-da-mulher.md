@@ -1,0 +1,16 @@
+---
+title: Oito de março: dia da Mulher
+date: 2010-03-04 11:46:21
+author: ricardo.barros
+debate: O que é História?
+slug: oito-de-marco-dia-da-mulher
+status: publish 
+type: post
+---
+
+No final do século XIX diversas organizações femininas surgidas nos movimentos operários protestavam nos Estados Unidos e em diversos países da Europa. As mulheres reivindicavam melhores salários, o fim das jornadas que alcançavam algumas vezes 15 horas diárias e o fim do trabalho infantil. A primeira vez em que se comemorou o Dia Nacional da Mulher foi nos Estados Unidos, em maio de 1908, quando mais de 1500 mulheres se reuniram e exigiram a igualdade econômica e política entre homens e mulheres. No ano seguinte, o Partido Socialista dos Estados Unidos oficializou o 28 de fevereiro como o Dia Nacional das Mulheres e, naquele ano o protesto reuniu mais de 3000 pessoas no centro da cidade de Nova York. Em novembro de 1909 uma longa greve no setor têxtil fechou cerca de 500 fábricas nos Estados Unidos. Em 1911, outro acontecimento teria marcado a história dessa data: um incêndio em uma fábrica de tecidos em Nova York teria matado carbonizadas 130 operárias. 
+ Durante a II Conferência Internacional de Mulheres Socialistas na Dinamarca, em 1910, representantes de 17 países propuseram a criação de uma data que comemorasse o Dia Internacional da Mulher. A principal meta, naquele momento, era instituir o voto universal em vários países do mundo.
+ A eclosão da Primeira Guerra Mundial resultou também no aparecimento de protestos dos grupos feministas em todo mundo. Foi em 8 de março de 1917 na Rússia, quando aproximadamente 90 mil operárias manifestaram-se contra as más condições de trabalho, a fome e a participação da Rússia na Guerra imposta pelo governo do Czar Nicolau II, que a data foi consagrada como Dia Internacional da Mulher, embora tenha sido oficializada como tal só em 1921. 
+ Em 1945 a Organização das Nações Unidas (ONU) assinou o primeiro acordo que previa a igualdade de condições e de direitos entre homens e mulheres. Na década de 1960, o movimento feminista ganha corpo e novas adeptas com diversas manifestações em todo o mundo. Em 1975 comemorou-se o Ano Internacional da Mulher e, dois anos depois a ONU reconheceu o 8 de março como Dia Internacional da Mulher. 
+ No Brasil o movimento em prol dos direitos da mulher surgiu através das lutas do movimento anarquista no início do século XX. Nas décadas de 1920 e 1930, a luta das mulheres ganhou força e importância política com o movimento sufragista inspirado em movimentos norte-americanos que também exigiam o voto universal. Em 1932, Getúlio Vargas institui o voto feminino que foi adotado também pela Constituição de 1934. Em 1982 surgiu o Conselho Estadual da Condição Feminina, em São Paulo e, em 1985, foi criada a primeira Delegacia da Mulher, no mesmo estado. 
+ A luta das mulheres para a melhoria de suas condições é, de certa forma, recente, mas já rendeu diversos frutos. Entretanto, as mulheres ainda hoje recebem salários inferiores aos pagos aos homens, de maneira geral têm dupla jornada, não tem preferência nas promoções dentro das empresas, entre outras desvantagens. O 8 de março é momento para reflexão, mas também para que as mulheres lutem por seu reconhecimento e pela igualdade de direitos.

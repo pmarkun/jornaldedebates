@@ -1,0 +1,11 @@
+---
+title: Devemos lutar para que seja e NÃO para não que não dê certo. 
+date: 2006-10-30 21:00:00
+author: edinaldo.souza
+debate: O segundo mandato está sendo melhor que o primeiro?
+slug: devemos-lutar-para-que-seja-e-nao-para-nao-que-nao-de-certo
+status: publish 
+type: post
+---
+
+Acredito que no segundo mandato o governo Lula dará continuidade às reformas e iniciativas econômicas e sociais (dentro dos limites de uma socialdemocracia) iniciadas no primeiro mandato. Não podemos carregar ilusões de que haverá nenhuma ruptura profunda, nenhum projeto transformador capaz de dar conta dos profundos problemas sociais vivenciados pela sociedade brasileira. Pois extrapolaria os limites do programa socialdemocrata que há muito tempo foi abraçado pelo PT e pelo Lula. Só teremos uma sociedade efetivamente mais justa, igualitária, humana e solidária mediante uma ruptura com o próprio sistema capitalista, irrealizável no momento, mas não impossível de algum dia (quiçá breve) realizar-se. Não me importo se me chamarem de utópico. Utopia maior é acreditar que será possível resolver os graves problemas sociais criados pelo capitalismo e que são a sua condição de sobrevivência, sem uma ruptura com o próprio sistema capitalista e a criação de um novo sistema NÃO capitalista, mas também DIFERENTE de tudo que até aqui chamaram de comunismo ou de socialismo. Portanto, o segundo mandato do presidente Lula certamente não será capaz de resolver os graves problemas sociais do povo brasileiro, mas poderá dar continuidade aos avanços sociais que iniciou no primeiro mandato, insuficintes, mas o possível dentro dos limites de um projeto socialdemocrata que é o que tinhamos de disponível no momento. Além de impedir o retrocesso que representaria a volta da mistura de uma pseudo-intelectualidade sul-sudestina com antigas oligarquias da direita mais conservadora, preconceituosa e insensível às demandas sociais representadas pela dobradinha PSDB/PFL. Foi consciente de tais questões e movido por esta percepção que votei no Lula mais duas vezes (1º e 2º turno). Esta deve ter sido também a motivação que levou muitos eleitores da esquerda, inclusive os que votaram em heloisa helena a votarem no Lula no segundo turno.

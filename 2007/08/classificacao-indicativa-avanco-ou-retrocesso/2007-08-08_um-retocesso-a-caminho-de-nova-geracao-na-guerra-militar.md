@@ -1,0 +1,11 @@
+---
+title: Um retocesso a caminho de nova geração na guerra militar
+date: 2007-08-08 21:00:00
+author: renata.01
+debate: Classificação indicativa: avanço ou retrocesso?
+slug: um-retocesso-a-caminho-de-nova-geracao-na-guerra-militar
+status: publish 
+type: post
+---
+
+Retrocesso a caminho a nova geração na guerra militar     Muitos que viveram na época da ditadura, pode nos falar como tudo começou e como tudo se passou. Foi por causa de um simples nazista na Alemanha, classificando os: puros, gays, mulheres e tais... Que uns simples militares acharam bonito, pensando que iria fazer bem a população, fez a tal classificação indicativa, pensou que não ia fazer mal algum, a população nada falava e então os políticos e militares tomaram conta do país.       Estamos em 2007, tudo correndo bem, nada proibindo a nossa liberdade, jovens/velhos/crianças assistindo e fazendo o que acham melhor para si sem alguém chegar da palpite. Tudo estava assim, até que chegam esse políticos como não tem nada para saber, pensam que podem tudo, colocam essa classificação indicativa que de nada adianta, só toma um pouco de espaço na programação desses artistas que trabalham para sobreviver.          Como de inicio falei, isso é um retrocesso para que as gerações novas enfrentem uma guerra militar. Estamos a um passo disso, se nada fizermos, se nada falarmos, pois nossos governantes querem impor respeito mas de uma forma bruta e feia. Querendo repetir a que anos fez, a que certas gerações até pensam em esquecer e no que deixou marcas por uma simples faixa imposta( a simples classificação). Não, se deve calar diante disso, não se deve queixar e nada fazer, mas, sim deve-se agir e dizer o que incomoda, e dizer não a classificação indicativa.          Porque se deixar que fique classificando tudo, chegará uma hora que nada podemos fazer e sim, só podemos pensar e falar: eh, agora só aceitar no que foi imposto para nós. Então, ajam antes que não possam fazer nada e diga não a classificação, que de nada serve a não ser para tirar um pouco de tempo e serviço desses atores que trabalham para sobreviver.          Diga não a Classificação, isso é o que toda classe de artista pede. Movam, tiram as mangas de fora e caras pintadas apareçam para reivindicar  os seus direitos e os dos seus colegas que também merece.

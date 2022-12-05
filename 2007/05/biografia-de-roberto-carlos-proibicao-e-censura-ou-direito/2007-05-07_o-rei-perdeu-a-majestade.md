@@ -1,0 +1,11 @@
+---
+title: O Rei perdeu a majestade...
+date: 2007-05-07 21:00:00
+author: luis.rosa
+debate: Biografia de Roberto Carlos: proibição é censura ou  direito?
+slug: o-rei-perdeu-a-majestade
+status: publish 
+type: post
+---
+
+Quem, com mais de 40 anos não gosta do cantor/compositor Roberto Carlos? Lógico que não de toda a sua obra, mas de uma cançãozinha pelo menos? Conheço gente que diz que o odeia, mas de repente pego cantarolando "Como é grande o meu amor por você", "É preciso saber viver", "Despedida" e tantas outras canções, para mim, maravilhosas. E realmente ele foi Rei no mundo da música popular. Que outro poderia ser? Como Pelé no futebol, ninguém pode ser comparado, sem ficar muito atrás nos quesitos gosto popular, grandiosidade e qualidade dos shows e especiais de TV. Muitos dizem que foi fabricado pela mídia, mas quem conhece e distingüe um bom cantor, sabe que não foi só isso. Assim como as jogadas e os gols de Pelé lhe deram a majestade no futebol, o canto especial de RC lhe deu a majestade na música. Sua qualidade fez com que se abrissem portas em programas na TV, assim como Pelé chegou ao time do Santos, e nesses seus respectivos "palcos", eles souberam como ninguém, com muito esforço, se efetivarem como reis. Mas, infelizmente, como ninguém é perfeito, pisam feio na bola em outros quesitos, como nessa questão da biografia. Foi de uma idiotice total, a começar pelo preconceito, na primeira vez que falou sobre o livro, RC já foi logo metendo bronca, sem ter lido ! Disse que alguém tinha lhe contado trechos e que não aprovava o que soubera. Depois falou que leu e manteve a mesma idéia, e então processou o autor. Que pena, RC... Acho que nenhum outro escritor teria engrandecido tanto a sua vida como o Paulo Cesar o fez, nem você mesmo, se ditar a sua biografia para alguém, conseguirá emocionar nem um décimo do que esse seu fã escritor o fez. Ele foi nas letras, o que você foi nas suas melhores canções de apologia à pessoa amada, e você não o reconheceu... Só resta lamentar. Eu, que fui muito seu fã nos anos 60 e 70, andava meio esquecido de você, ao ler o livro reacendeu em mim uma admiração, vontade de te ouvir, ir a um show seu. O Paulo não contou um "podre" sequer sobre você ! Pô, Bicho, você pisou nas flores, mesmo ! Que mancada !

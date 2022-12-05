@@ -1,0 +1,21 @@
+---
+title: Passei 17 horas no aeroporto
+date: 2006-12-06 22:00:00
+author: sen.heloisa.helena
+debate: JD no Congresso
+slug: passei-17-horas-no-aeroporto
+status: publish 
+type: post
+---
+
+    (...)Passei 17 horas no aeroporto de Brasília, porque, quem é rico, viaja em seus aviõezinhos. Que conversa é essa de defender rico? Quem é rico tem o seu aviãozinho e vai só. Pode até ser submetido a um problema grave também em relação ao tráfego aéreo, mas não depende de avião de carreira.   
+    No dia em que eu passei 17 horas no aeroporto, o Aerolula saiu, com a sua corriola, dando carona a Parlamentares que iam para o Nordeste, numa boa! Eu fiquei 17 horas no aeroporto - poderia ter ido para casa dormir. Mas fiquei no aeroporto, (...)por constrangimento. Lá estava um senhor, com o caixão da mãe, que precisava chegar a Imperatriz; uma senhora teve uma convulsão no saguão do aeroporto porque era epilética, além de outros casos gravíssimos! Inclusive, a Polícia Militar de Brasília pediu-me para ficar no aeroporto, para ajudar, queriam quebrar o aeroporto, na oportunidade eu era a calma, imaginem como estavam os outros!   
+    Qual é o fato concreto? Irresponsabilidade, incompetência e uma atitude criminosa. Se existe um padrão de segurança admitido no mundo inteiro de que um controlador de vôo analisa de oito a catorze aeronaves, não é sério, não é responsável, não é competente que ele passe a controlar trinta aeronaves em um painel ridículo como aquele!   
+    O Governo é tão incompetente que, toda a estrutura tecnológica, comandada pelos militares para o controle do espaço aéreo, as informações não são repassadas para o controle do tráfego aéreo. É um escândalo uma irresponsabilidade tão grande como essa! Então, além do instrumental legal para a contratação, para a formação, para cumprimento daquilo que os controladores de vôo que, há três anos encaminharam um documento detalhado, dando conhecimento de quantas aeronaves cada um deles controlavam, além de tudo isso, havia uma alternativa mais fácil de se fazer: alterar o cronograma dos vôos. Se há determinado horário, no tráfego aéreo, sem aeronaves e é possível distribuí-las ao longo do dia, então, por que isso não é feito? Incompetentes, irresponsáveis, criminosos.  
+     Alterar o cronograma dos vôos enquanto contrata pessoal, enquanto forma pessoal, enquanto resolve o problema salarial. Nem a alteração no cronograma de vôos este Governo incompetente é capaz de fazer! Promovendo a alteração garantiria a cada controlador monitorar o máximo de aeronaves permitido pelo padrão de segurança, que são catorze aeronaves. Então, não se faz absolutamente nada! Por isso esse caos instalado.   
+    Este Governo incompetente, irresponsável, criminoso, não fez absolutamente nada em relação ao documento que os controladores de vôo encaminharam há dois anos e meio. Quem usa o avião são pessoas pobres. Inclusive muitas pessoas que usam o avião, a passagem é paga pelo SUS para fazer transplante, para fazer atendimento. Quem anda em avião de carreira vê exatamente quais são as pessoas que lá estão.     Portanto, quero (...)deixar claro existe um instrumental legal para formação, contratação de forma emergencial, é para isso que tem essas porcarias dessas medida provisórias. Faz medida provisória para tudo que é safadeza, não tem condição de fazer para isso? E mais rápido ainda, alterar o cronograma, porque resolve o problema. E que o Governo deixe de ser incompetente ao invés de criar rotas alternativas irresponsáveis. Porque, para fugir do controle de Brasília, foi o que disse o Ministro, busca-se uma rota alternativa litoral que sequer tem radar para controlá-la. São uns irresponsáveis!   
+    Não existe mecanismos de controle eficazes nas rotas alternativas para sumir do controle de Brasília, que é onde a pressão estava maior. Quanto ao deslocamento de pessoal, se há problema em determinado centro de radar, tira-se pessoas de um lugar e as coloca em outro, esvaziando os mecanismos de controle desses setores. (...)Se o Governo quisesse, em 20 minutos esse problema já havia sido resolvido. São vários dias, vários meses! Não é possível que nem a alteração do cronograma essa gente possa fazer! (...)  
+  
+Discurso do dia 06/12/2006.  
+  
+Leia a integra [aqui.](http://www.senado.gov.br/sf/atividade/plenario/sessao/disc/listaDisc.asp?s=210.4.52.O)

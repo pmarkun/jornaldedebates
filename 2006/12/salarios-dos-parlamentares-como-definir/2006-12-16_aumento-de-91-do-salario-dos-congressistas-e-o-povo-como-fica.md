@@ -1,0 +1,15 @@
+---
+title: Aumento de 91% do salário dos Congressistas e o povo como fica?
+date: 2006-12-16 22:00:00
+author: italo.lima
+debate: Salários dos Parlamentares: como definir?
+slug: aumento-de-91-do-salario-dos-congressistas-e-o-povo-como-fica
+status: publish 
+type: post
+---
+
+Nós na condição de brasileiros e diante da miséria que a maioria da nossa população vive devemos tomar uma iniciativa e utilizando da nossa condição como participantes dessa democracia, vetar utilizando do nosso poder, pois como prever a nossa Constituição em seu artigo 1° parágrafo único "Todo poder emana do povo...". Portanto, nós brasileiros não podemos ficar inertes diante de tal aberração que esta acontecendo no Congresso Nacional, como nós podemos ficar quietos quando eles nos fazem de idiotas. No momento de dar um aumento no salário mínimo, para que possa melhorar as condições de vida em que subsiste a grande massa operária de nosso país eles fazem uma enorme confusão, dizem que os cofres nacionais não suportaram um ato tão absurdo. Porém, quando se trata de aumentar os próprios salário estes corruptos não levam em consideração os cofres públicos nem tão pouco a grande massa da população que vive em estado de miséria, levam em consideração apenas o bolso deles e o saldo de suas contas bancárias no final do mês, eles importam-se apenas em enriquecer cada dia mais e o pior de tudo é que nós brasileiros ficamos calados e inertes quando devíamos sair às ruas gritar e demonstrar a nossa indignação diante desse contra-senso de meia dúzia de políticos, cujos deveriam estar lá para nos representar, tomar decisões que fossem as mais benéficas para a população e não para acharem que estão ganhando POUCO. Ora, no momento que eles candidataram-se aos cargos sabiam muito bem qual seria o seu salário, e convenhamos que um salário cujo passa dos 15.000 mil reais fora todas as assistência que eles gozam é muito além do que vive mais de 80% da nossa população. E 15.000 de pouco não tem nada.  
+
+Por tanto nós na condição de brasileiros e detentores do poder que faz funcionar esse país imenso e de riquezas inigualáveis, porém má distribuídas, demonstrar-mos a estes corruptos que, ao contrário do que eles pensam, cabe a nós brasileiros, natos ou naturalizados, o poder de comandar o País. Mostrar-mos a eles que eles não passam de empregados nossos, que ali se encontram apenas por nossa vontade e bem querer. Não podemos, nós, ficarmos parados diante de tal despautério, devemos mostrar a eles que não somos os lerdos que eles acham que somos, mas, sim um povo indignado com todos os despropósitos e escândalos que envolvem a cada dia nossa nação.  
+
+Por isso, senhores Congressistas ao invés de os senhores preocupar-se com o povo que aí os colocaram para defenderem seus direitos e interesses e tentarem instituir os objetivos fundamentais da nossa República, cujos os mesmos encontram-se elencados no artigo 3° da nossa Constituição de 1988, preocupam-se como vocês irão usurpar ainda mais dinheiro da nossa massa trabalhadora. Por tanto senhores congressistas desculpem-me a sinceridade mais vocês são uma vergonha para a nossa população.

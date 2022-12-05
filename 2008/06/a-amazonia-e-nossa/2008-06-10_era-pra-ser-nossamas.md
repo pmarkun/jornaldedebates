@@ -1,0 +1,11 @@
+---
+title: Era pra ser nossa...mas,
+date: 2008-06-10 21:00:00
+author: raimundo.lima
+debate: A Amazônia é nossa?
+slug: era-pra-ser-nossamas
+status: publish 
+type: post
+---
+
+Na atual conjuntura e por pura culpa dos governantes a Amazônia brasileira não é mais nossa. Todos dizem " A Lei está ai pra ser cumprida", ora, se o Congresso Nacional (cheio de pessoas anti-Brasil) encheu os estrangeiros de direitos através de suas Leis arcaicas, (Leis que passam vinte, trinta anos tramitando alí), e estes compraram parte da Amazônia, amparados por estas Leis é claro que são verdadeiros donos do que adquiriram. Enquanto bons projetos de interesse da nação, fica de mão em mão a espera do toma lá dá cá, as ONGs acobertadas po interesseiros proliferam-se. O Presidente Lula Tem que nacionalizar a Amazônia brasileira já, assim como fez o cocaleiro Evo Morales, além disso, repelir veementimente qualquer governo estrangeiro que dê pissica sobre a Amazônia. É brincadeira como o mundo não se deu conta de que o Brasil não é mais colônia de ninguém. A Amazônia, assim como os estados do norte e nordeste sempre foram deixados de lado. A Amazônia sustentou o mundo por séculos. Daqui saiu a banha e a carne de bilhões e bilhões de tartarugas e peixes-boi, imaginem: a banha para iluminar Londres. Daqui saiu quase toda a borracha utilizada pelos aliados na segunda guerra mundial, imaginem: o contrabando das sementes mandou por terras a riqueza que era natural da Amazônia. Penso eu que, por estes poucos relatos que fiz aqui, entre muitos outros sobre a sustentabilidade do mundo pela Amazônia, é que faz gringos pensarem que o Brasil é o quintal deles ainda. Passou da hora dos governos agirem em defesa da Amazônia. E tem mais, todo esse alarde é só por estarmos em epoca de eleição. O que mais se vê, são politicos papagaio de palanques, trabalhar sério que é bom, nunca. Não sou Luista, longe de ser mas, foi o único que teve a coragem de perguntar pela floresta americana, pelos índios americanos e pela floreta européia. Todo esse desrespeito com o país é fruto da venda ilusória, lá fora, do combate ao analfabetismo, a fome, boa saúde, segurança entre outras. Quando na realidade o que se vê é cada vez mais o brasileiro indo pro brejo junto com a floresta Amazônica.

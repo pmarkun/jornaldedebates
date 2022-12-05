@@ -1,0 +1,11 @@
+---
+title: Depende de qual  Brasil que estamos falando ...! O Brasil  rico ou o Brasil pobre !
+date: 2007-11-28 22:00:00
+author: carlos.ferreira4
+debate: O Brasil é mesmo um país independente?
+slug: depende-de-qual-brasil-que-estamos-falando-o-brasil-rico-ou-o-brasil-pobre
+status: publish 
+type: post
+---
+
+O Brasil rico e o Brasil pobre ! Talves a ONU deve ter feito seu estudo sobre com referencia aos estados que praticamente são industrializados, com um forte comercio e uma renda percapta acima dos padrões nacionais. O governo prefere dar o Bolsa familia para a população carente porque e aquela famosa troca de interesses. "EU TE DOU O BOLSA FAMILIA E VOCÊ ME DÁ O SEU VOTO" e depois quer a todo custo a prorrogação da CPMF para não estourar as contas. Se o governo do então presidente LULA fize-se de ato pelo menos um projeto de vida, visando inclusive a educação de qualidade para todos seria bem mais barato, economico e digno para o povo que realmete quer trabalho. No fundo o governo sabe que quem acaba pagando as contas e a população que trabalha e paga impostos. Esta conta que ele quer que a gente continue pagando para a campanha de seu partido e coligados. Se as pessoas da ONU que fizeram este estudo estiveram aqui no Brasil´para fazer esta pesquisa com certeza ela não teria este resultado.O governo atual não fez nenhum projeto até hoje que desse emprego a um trabalhador de verdade, Estou falando de trabalho não cargo publico para aqueles que o apoiaram em campanha ou porque deve favores, estou falando sim de um verdadeiro trabalhador.Temos um nordeste maravilhoso, com praias que são verdadeiros paraisos! Porque não incentivar o Turismo no nordeste. Fazer propaganda do Brasil fora, más a ministra do Turismo faz realmente turismo...Vive viajando, relaxando e gozando.Pede pra ONU ver está pesquisa aqui no Brasil para eles verem uqe o Fome Zero e a maior piada do mundo...Se voces duvidam vão até o Ceasa e ve o que se perde diariamente de alimentos...São algumas toneladas diarias fora o que muitas pessoas vão recolher para levarem para suas casas. Traz a ONU aqui....manda eles virem aqui e vão ver que país nenhum do mundo joga fora uma quantidade enorme de alimentos no lixo todos os dias... Só aqui no Brasil.....! O Brasil rico e claro.

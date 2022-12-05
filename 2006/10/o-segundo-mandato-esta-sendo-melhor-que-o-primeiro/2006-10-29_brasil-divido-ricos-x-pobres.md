@@ -1,0 +1,11 @@
+---
+title: Brasil divido - RICOS X POBRES
+date: 2006-10-29 21:00:00
+author: carlos.oliveira2
+debate: O segundo mandato está sendo melhor que o primeiro?
+slug: brasil-divido-ricos-x-pobres
+status: publish 
+type: post
+---
+
+O Lula insiste em afirmar que ganhou a "sabedoria" do povo pobre, em contrapartida ao voto de "elite" do eleitor de Alckmin. O problema é que se somente os ricos tivessem votado em Alckmin, o Lula teria ganho por 90-10, mas ele ganhou por 60-40. O Alckmin ganhou onde o "povo" realmente o conhece, São Paulo, sendo que o Lula ganhou onde o "povo" conhece só o bolsa-família. Infelizmente ficou acentuada a intolerância. Os "ricos" que tem carro, casa própria, escola particular, plano de saúde, etc. (é esse o conceito de rico, certo ?) estão enojados com a reeleição do Lula e com a "burrice ignorante" de quem vende o voto de forma oficial, através do benefício do bolsa-família. A diferença é que antes do Lula, a compra dos votos era crime e o "bolsa" do outro governo dependia de mais requisitos, aumentando a possibilidade de melhoria de vida do beneficiário. Por outro lado, os "pobres" (pobre seria aquele que passa fome na zona rural ou aquele que faz crediário nas Casas Bahia ?) que mal sabem o que é mensalão e que votam no Lula como se fosse um culto evangélico onde todo argumento contrário é coisa do "cão ". O mais triste é que se fortaleceu a divisão. Os 40% de Alckmin estão mais inconformados com a "preguiça", a "vadiagem", a "ignorância", a "burrice" dos que votam no Lula e acham mesmo que o governo tem que "sustentar" a população, dar dinheiro para quem não tem (ou não quer trabalhar para ter), arrumar emprego em estatal para todo mundo, etc. E os 60% do Lula estão com mais "raiva" dos "filhinhos-de-papai" que tem carro ou estudam em escola particular, da classe média que vai em shopping-center, do "patrão" que passa o dia "contando dinheiro" enquanto ele, pobre, é quem realmente trabalha e mereceria ser rico. Andamos para trás no quesito mais importante de nossa nação : o social. Estamos correndo o risco que criar no Brasil situações de preconceito e ódio social tão grandes quanto o preconceito e ódio racial existente em outros países como EUA e França.

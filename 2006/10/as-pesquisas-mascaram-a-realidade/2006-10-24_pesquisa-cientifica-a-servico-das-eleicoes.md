@@ -1,0 +1,13 @@
+---
+title: Pesquisa científica a serviço das eleições
+date: 2006-10-24 21:00:00
+author: marcelo.lobato
+debate: As pesquisas mascaram a realidade?
+slug: pesquisa-cientifica-a-servico-das-eleicoes
+status: publish 
+type: post
+---
+
+Já não é de hoje que institutos especializados se dedicam a verificar intenção de votos pelo nosso país, em específico, e pelo mundo, de um modo geral. Ao que tudo indica, e pode-se comprovar isso através de verificações científicas, essas pesquisas são realizadas tendo como base de sustentação para seus resultados algo de que os alunos de nível superior possuem uma aversão quase que natural: Os métodos e as Técnicas científicas. 
+Analisemos o caso em questão: O Sr. Geraldo Alckimim contesta os resultados das pesquisas de intenção de votos no primeiro turno, pois afirma que terminou o turno em questão com 11% a mais de votos do que as pesquisas indicavam. Uma pena esse senhor esquecer de dizer que não tem nada de errado com os resultados divulgados anteriormente à contagem dos votos (eletronicamente), haja vista que todos os candidatos à Presidência da república, ao menos os mais expressivos, obtiveram nas urnas, exatamente o percentual de votos que as pesquisas indicavam (Vide pesquisas anteriores à eleição). O que aconteceu com o Sr. Geraldo foi que ele acabou agraciado com a maioria dos votos dos indecisos, que somavam 13% antes das eleições e, desse total, apenas 2% não votaram nem no Geraldo e nem no Lula (nesse caso o motivo talvez tenha sido a falta ao debate da emissora do plim-plim, mas estou apenas especulando, uma vez que não possuo nenhum instrumento confiável de verificação para tal fato). Com uma pequena perda do Presidente, na ordem de 2%, já que as pesquisas apontavam para um percentual de 51% para ele, fomos ao 2º turno.
+Não tem nada de errado com as pesquisas feitas antes do 1º turno; o que há é a conveniência de uma leitura acerca dos resultados que possa influenciar o eleitorado a acreditar num ou noutro candidato qualquer. Quanto a quem será o próximo presidente, não é esse o tema da enquete do site, mas o que peço, como pesquisador e responsável por aquilo que faço, é que deixem a ci~encia trabalhar em paz, pois se homem saiu das cavernas e chegou onde chegou, não foi graças a andar em duas pernas, não foi graças a religião, não foi graças aos lindos olhos que possuímos. Foi graças, isso sim, de uma coisinha chamada CONHECIMENTO CIENTÍFICO, aspecto mais do que presente em qualquer pesquisa de intenção de voto, ao menos àquelas mais sérias. Mas para candidatos, sérias, apenas as que refletem os resultados que eles gostariam que fossem verdadeiros.

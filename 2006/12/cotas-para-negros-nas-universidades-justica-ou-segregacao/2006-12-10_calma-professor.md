@@ -1,0 +1,11 @@
+---
+title: Calma professor
+date: 2006-12-10 22:00:00
+author: adilson.xavier
+debate: Cotas para negros nas universidades: justiça ou segregação? 
+slug: calma-professor
+status: publish 
+type: post
+---
+
+Realmente não dá para compreender determinadas posições assumidas por pessoas que deveriam no mínimo ser ponderadas em suas exposições. Quando o assunto é ,acões afirmativas, sistema de cotas, ou qualquer outra ação que venha a atender a população ,afrodescendente, provoca uma avalanche de opiniões que não se manifestam ante tantas distorções vividas diariamente a tantos anos pelos negros que ainda sobrevivem nesta sociedade que lhes dedica tanto ódio. Só o ódio pode explicar o porque de os sucessivos governos do Estado da Bahia não terem observado que o comércio de Salvador não emprega negros. Não é possível que na Cidade com a maior população negra do Brasil , cerca de 66% da população , o comércio formal da Cidade , bares, lanchonetes,padarias, lojas de roupas etc... ocupem menos de 3% de suas vagas com negros. Não dá para não ver que os Shoping Center de todo o Brasil negam aos jovens negros a oportunidade de emprego sonhada por todos os jovens. Não é possível a nenhum Delegado de Polícia do Rio ou de São Paulo não perceber que 95% dos jovens assassinados nas suas áreas são negros, criminosos ou não. Recentemente foi publicado no Jornal do Brasil uma pesquisa que mostra que nas maternidades públicas as mulheres negras têm uma dificuldade em conseguir vagas 33% maior do que as mulheres brancas na mesma maternidade, o que significa que tem vaga para uns mas não tem para outros e ainda com o agravante de que quando as negras conseguem a internação as visitas do médico ao paciente são 50% menores para elas o que ocasiona diferença não só na taxa de mortalidade tanto de mães quanto de filhos e o que é pior a auto estima dessas mulheres vai ladeira abaixo. O negro já nasce discriminado e ainda nem é pivete.Creio que o sistema de cotas não vai corrigir a curto prazo tais distorções mas entendo que se os médicos(em sua maioria brancos e de classe média) convivessem com a diversidade etnica durante seus cursos, olhariam com outros olhos os seus pacientes negros pois o convívio a integração e a troca de experiencias é que nos faz ver no outro um igual.

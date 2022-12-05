@@ -1,0 +1,16 @@
+---
+title: A reforma política: do listão ao distritão
+date: 2009-05-08 17:47:31
+author: professorgilsonmonteiro
+debate: Noticiar ou reportar? Eis a questão
+slug: a-reforma-politica-do-listao-ao-distritao
+status: publish 
+type: post
+---
+
+Não consigo entender como, no Brasil, até o futebol avançou e a política não avança. Falo isso porque mais tradicional que a Confederação Brasileira de Futebol (CBF) só mesmo a Associação Internacional das Federações de Futebol (FIFA). Ainda assim, a CBF levantou a poeira do tradicionalismo, deu a voltar por cima e implantou o Campeonato Brasileiro de Futebol por pontos corridos, ou seja, ao final, quem tiver mais pontos é o campeão e PT saudações. Por que na política brasileira não é a mesma coisa: ao final dos pleitos os mais voltados são os eleitos e pronto? Se deu certo no futebol, por que não pode dar certo na política?
+O senador Francisco Dornelles (PP-RJ) não quer nem ouvir falar do listão defendido pelo deputado federal Ibsen Pinheiro (PMDB-RS) e propõe o chamado distritão. A proposta de Dornelles é a coisa mais simples do mundo. Tão simples que nos leva a perguntar o porquê de alguém, até agora, não ter proposto nada. Estados e municípios seriam transformados em distritões e os mais candidatos votados seriam os eleitos sem muitas delongas.
+Entre o distritão e o voto em listas fechadas, os políticos brasileiros certamente optarão pelas listas. Ora, ora, ora, meus caros leitores e leitoras. Com o voto diretamente nos candidatos e a possibilidade de eleger os mais votados sem a história de legenda nem nada, o poder fica na ponta dos dedos dos eleitores. Basta digitar os números, confirmar e” alea jacta est.”
+Com as listas, que aparentemente fortalecerá os partidos, em verdade, o poder ficar ainda maior nas mãos dos caciques. E quem duvida que as tais listas sejam decididas como bem entenderem os comandantes dos partidos (e suas famílias, pois a maioria dos partidos brasileiros não passa de uma empreitada familiar)? A base? Ah a base! Já funciona como massa de manobra no modelo atual, ficará ainda mais apenas carimbando decisões empurradas goela abaixo para dar um ar de democracia ao processo. O listão teria de ser banido imediatamente pelas forças progressistas da sociedade. Implantá-lo é sair de um modelo ruim para um pior ainda.
+Quanto ao modelo atual, apresenta situações semelhantes às dos antigos campeonatos de futebol: times somavam o maior número de pontos durante uma temporada, mas, em um jogo, perdiam o título para que terminava a primeira fase como o último classificado. Talvez seja emocionante para alguns, mas injusto do ponto de vista de um trabalho de longo prazo. Na política atual ocorre o mesmo: um deputado ou vereador que consegue milhões de votos “arrasta” ilustres desconhecidos (pior ainda ruins de votos) com ele. Incompetentes nas urnas às vezes ganham quatro anos de mandato a contragosto dos eleitores.
+No jogo da política como no do futebol, deve prevalecer a máxima: quem apresentar melhor trabalho ao longo do tempo merece levar. Assim como os pontos corridos do futebol, na política, deve levar a vaga quem obtiver o maior número de votos e acabou-se. Vamos criar um movimento nacional de não ao listão e sim ao distritão. E que os melhores vençam sem precisar tomar a benção dos caciques de cada sigla partidária.

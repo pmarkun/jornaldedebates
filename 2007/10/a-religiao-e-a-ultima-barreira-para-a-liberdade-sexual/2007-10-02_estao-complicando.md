@@ -1,0 +1,11 @@
+---
+title: ESTÃO COMPLICANDO
+date: 2007-10-02 21:00:00
+author: arlindo.reis
+debate: A religião é a última barreira para a liberdade sexual?
+slug: estao-complicando
+status: publish 
+type: post
+---
+
+Desde criança conhecí uma série de homossexuais que eram respeitados pela sociedade, por um único e simples motivo; é respeitando que se é respeitado. Salvo excessões, as pessoas sempre respeitarão os homossessuais sóbrios e respeitadores.Respeitar e aceitar é uma coisa perfeitamente possível, porém o que estão tentando desesperadamente, é fazer a sociedade entender o homossessualismo como sendo a coisa mais normal do mundo. Isso pra quem não vive delirando, é algo impossível de acontecer. E quanto mais forçarem a barra, pior será. O tiro sairá pela culatra. Estão tentando transformar excessões em regra, fruto de um delírio cego e irresponsável. Um dia desses em Balneário de Camboriú, ouvi dentro de um ônibus um homossessual comentar com uma pessoa que depois desses movimentos gay, ele tem sentindo que as hostilidades contra a pessoa dele por ser homossexual está aumentando. Venho tentando entender o porque desse  desespero todo de algum poder em homossessualizar o mundo ao máximo. É notório que existem interesses políticos por tráz de tudo. Talvez esse intento fosse possível num passado bastante longínquo, já que a sociedade então incomparavelmente, muito mais atrazada que hoje não tinha o menor censo filosófico e social. Hoje em dia, as pessoas por mais ignorantes que sejam, em sua maioria, são dotadas de muito mais sentimento racional sobre as coisas e a vida. Tanto que o poder da mídia nas mentes das pessoas a apenas vinte anos atráz, era muito maior do que agora. Uma das provas disso é a reeleição do Presidente Lula, apesar dos bombardeios da mídia. A sociedade como um todo jamais acreditará que é normal dois barbudos se beijando. Merda quanto mais mexe, mais fede. Deveriam se contentar apenas com o fato da sociedade aceitar os homossessuais como tem sido até então. Usar do legislativo, como maneira de forçar ainda mais a barra, só irá aumentar a homofobia. Não presisa ser  pisicólogo, sociólogo, filósofo, ou qualquer coisa desse gênero para concluir o óbvio, é só não ser o pior cego, ou seja, aquele que não quer ver. Como disse Enéas: Tubo retal não é órgão sexual.

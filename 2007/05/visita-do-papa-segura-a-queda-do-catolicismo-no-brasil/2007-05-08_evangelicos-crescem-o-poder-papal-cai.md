@@ -1,0 +1,11 @@
+---
+title: Evangélicos Crescem o poder papal cai
+date: 2007-05-08 21:00:00
+author: natanael.santos
+debate: Visita do papa segura a queda do catolicismo no Brasil?
+slug: evangelicos-crescem-o-poder-papal-cai
+status: publish 
+type: post
+---
+
+O grande crescimento que estamos vendo acontecer no mundo evangélico, não é por acaso a carta magna da igreja de Cristo Diz: "Ide por todo mundo e pregai o evangelho a toda criatura, quem crer e for batizado será salvo, quem não crer será condenado" Marco 16-15 - Não sera a visita de um homem que ira fazer com que os catolicos decidam continuar catolicos, porque o papa pediu ou classifica os evangélicos como seitas, para se ter uma seita se tem que ter HERESIAS, o que os evangélicos fazem é LER, ESTUDAR, INTERPRETAR, EXAMINAR a palavra de Deus que é a Biblia, para não cair em heresias e então cumprir os estatutos e mandamentos Divinos, o que acontece é a maioria dos católicos raramente põe a mão na biblia e nem se quer param para ler ou tentar entender, ficando assim nas mãos de um homem, que diz o que lhe melhor convier, entendemos que os evangélicos não largam a biblia da mão, estudam, examinam, procuram nos conhecimentos de hermeneutica, homilética, arquiologia, para saber o que realmente Deus quer dizer, e quando estes catolicos tem o conhecimento da leitura da biblia começam a ver as heresias que os sacerdotes católicos cometem inclusie o seu maior nome o PAPA, o que os catolicos procuram e não encontram na igreja católica nem no movimento carismatico que é uma estupidez de tentar imitar os evangélicos, é o poder de Deus, e o evangelho é o poder de Deus, poder transformador, regenerador, liberta o homem dos seus medos, vicius, a sua maneira de viver vã e promiscua, trazendo ao seu lar uma paz que somente Jesus pode dar e não nenhuma imagem de escultura, ou um tapinha nas costas vá la reze tantos pai nosso que voce estara perdoado, o perdão sé vem com o arrependimento, estou certo que o evangelho só tem a crescer mais e mais, pois tem sido um balsamo para curar as feridas e um oasis em meio ao deserto e a esta terra seca que é o Brasil e o mundo. Jesus ama o Brasil, por isto o povo de Deus se levanta e vai anunciar as boas novas do EVANGELHO. JESUS CRISTO SALVA, CURA, LIBERTA, E LEVA O HOMEM AO ENCONTRO DE DEUS PAI. JESUS TE AMA TAMBEM E QUER MUDAR A SUA VIDA.

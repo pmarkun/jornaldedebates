@@ -1,0 +1,20 @@
+---
+title: As sutilezas de Alckmin.
+date: 2006-10-23 21:00:00
+author: anderson.lima2
+debate: Lula X Alckmin: quem venceu o debate?
+slug: as-sutilezas-de-alckmin
+status: publish 
+type: post
+---
+
+É importante o telespectador perceber as diferenças. 
+Como o candidato Lula, do PT, já está sendo muito falado por aí, me atentei somente às dualidades no discurso de Alckmin. 
+Alckmin é um saudosista, e sente falta da soberânia dos Estados Unidos sobre o Brasil, e do julgo desigual e amargo que éramos submetidos pelo Fundo Monetário Internacional (FMI). 
+Quando questionado sobre política externa, Alckmin responde que seu governo irá colocar os interesses do Brasil à frente dos ideologicos e partidarios, abrindo assim as portas para os Estados Unidos. Sim, pois achou repugnante o fato dos Estados Unidos, fazer acordo com nossos países vizinhos e não com o Brasil, afinal de contas, coitadinho do Brasil. Fizemos os Estados Unidos perder o interesse na Área de livre comércio das Américas (ALCA), coitados de nós, precisamos deles. Dessa forma Alckmin "agarantia", parafraseando Seu Creysson, que nós seremos locomotiva e não vagões, como diz em sua propaganda. 
+Se o governo de Alckmin irá ressaltar os interesses do povo brasileiro, qual o interesse em abrir novamente as portas aos Estados Unidos? Portas estas, fechadas com muita luta, por liberdade e independência. E ainda assim acusa o atual governo de ter mantido uma posição dúbia em algumas decisões internacionais. 
+Há algumas contradições feitas sutilmente no discurso de Alckmin. Mantém uma postura totalmente "morna" quando questionado sobre privatizações, tanto é que, Lula nesse debate nem fez tal questionamento, ele foi feito pelo próprio Alckmin, acusando Lula de mentiroso.
+Reitero que Alckmin denota tom preconceituoso, quando em sua propaganda gratuita exalta o nordeste, deixando assim escancarada a idéia de que o país está dividido em classes, coisa que seu governo, partido e militantes negam existir no Brasil. Utiliza o nordeste e seu povo sofrido como "bandeira de campanha" e ainda assim, os militantes mais eufóricos do PSDB criticam a política social de Lula, sendo que Alckmin faz a mesma proposta de forma sutilmente diferente.
+É importante que os telespectadores percebam as diferenças, e não só as diferenças, mas também as igualdades. Bate na mesma tecla, afirmando que vai diminuir gastos, porém quando questionado sobre extinção da CPMF, outra vez uma resposta "morna", que prá bom entendedor meia palavra basta: "Não se pode acabar com a CPMF, que gera 30 bilhões, do dia para a noite". 
+O sonho de Alckmin é que os filhos do Brasil tenham oportunidades e se desenvolvam, ou seja, vote no Lula, porque Alckmin irá nos proporcionar fortes emoções, abrindo as portas para os Estados Unidos, para o FMI e sua política neo-liberal. 
+É importante que o telespectador perceba as diferenças.

@@ -1,0 +1,21 @@
+---
+title: ignorantes !!!!!
+date: 2006-10-08 21:00:00
+author: carlos.quaresma
+debate: Lula X Alckmin: quem venceu o debate?
+em_resposta: O LULA DEU UM BAILE NO DEBATE....
+em_resposta_user: leonardo.teixeira
+slug: ignorantes
+status: publish 
+type: post
+---
+
+*TOTALMENTE DESPREPARADO O XUXU CANDIDATO DO PSDB, CUIDADO ELE PODE PRIVATIZAR A SUA CASA, ONDE JÁ SE VIU ESTADISTA SE A FAVOR DA PRIVATIZAÇÃO , PELO AMOR DE DEUS INFORME-SE ANTES DE FALAR ABOBORAS JÁ QUE VC GOSTA DE HORTFRUTS..* 
+
+
+ 
+
+
+*LULA VAI SUBIR + AINDA NAS PESQUISAS APÓS O DEBATE DE ONTEM, POIS OS 49% QUE VOTAM OUTRA VEZ , E ONTEM ELE CONQUISTOU MEU VOTO . VOU VOTAR NO LULA*
+
+

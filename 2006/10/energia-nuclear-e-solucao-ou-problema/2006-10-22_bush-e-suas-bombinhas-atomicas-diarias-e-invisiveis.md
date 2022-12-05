@@ -1,0 +1,17 @@
+---
+title: Bush e suas bombinhas atômicas diárias e invisíveis
+date: 2006-10-22 21:00:00
+author: vanessa.kopersztych
+debate: Energia nuclear é solução ou problema?
+slug: bush-e-suas-bombinhas-atomicas-diarias-e-invisiveis
+status: publish 
+type: post
+---
+
+Sem dúvida, um teste nuclear na remota Coréia do Norte é motivo para o mundo inteiro ficar em alarme. Ainda mais, com o cenário nada tranqüilizador dos dias atuais: o sangue de militares e civis está jorrando diariamente em conflitos no Iraque e no Oriente Médio.
+Al Gore perdeu a eleição para presidente em uma possível maracutaia eleitoral nos Estados Unidos -vide aquela tumultuada recontagem de votos na Flórida- e o mundo todo também saiu perdendo ao ganhar George W.Bush como presidente da maior potência do planeta. O "Senhor da Guerra" tremeu na base com os atentados de 11 de setembro de 2001 e mandou invadir o Iraque a pretexto de desativar esquemas de armas de destruição em massa. Milhares de mortes e galões de petróleo depois, essas armas nunca apareceram e o mundo ficou pior: o conflito no Oriente Médio e a Guerra Santa ganharam ares ainda mais sérios e trágicos.
+E agora um ditador comunista maluco e atrevido ameaça explodir a bomba na Coréia do Norte, fragilizando a geopolítica a ponto de querer criar uma tensão entre as duas maiores potências do momento: China e EUA.
+O mundo agora quer saber como neutralizar os (podres) poderes atômicos de Kim Jong-il. Ameaças com sanções econômicas, intervenção militar, tudo está sendo estudado para tentar aniquilar mais um temido integrante do "eixo do mal". A ONU está quebrando a cabeça para definir como prejudicar mais ainda a Coréia do Norte, tão rica em belicosidade e tão miserável sob todos os outros aspectos -boa parte de seus habitantes passa fome.
+Mas quem é mesmo o maior opositor ao eixo do mal? Bush. Que estranho, tenho certeza de que ele é mais um integrante dessa quadrilha que planeja deixar o planeta Terra cada vez mais instável e apocalíptico.
+Uma frase de efeito? Por que a ONU não discute medidas para punir os Estados Unidos? Pois quem manda na terra do Tio Sam, (infelizmente um bronco que nasceu no Texas) recusa-se a assinar o Protocolo de Kyoto, tratado que visa diminuir a emissão de gases poluentes que contribuem para o já sombrio panorama do aquecimento global. Vale lembrar que o país de Bush é o responsável por nada menos do que 25% das emissões mundiais de carbono. Ou seja: ¼ do volume dos gases poluentes que ameaçam derreter as calotas polares e provocar tsunamis gigantes em nossos oceanos, até que a raça humana fique submersa como nenhum dos mais criativos roteiristas de Hollywood jamais imaginou, é produzido pelos Estados Unidos com o aval de Bush. E eu pergunto: é só Kim Jong-il que tem a bomba? Os EUA fazem igual, lançando diariamente milhares de bombinhas(de gás carbônico) quase invisíveis a olho nu, capazes de provocar, daqui a um tempo nem tão remoto quanto a maioria dos otimistas imagina, uma tragédia muito pior do que Hiroshima e Nagasaki.
+O governo americano justifica sua decisão alegando que a medida prejudicaria a economia americana. Ou seja, mais um valor tipicamente americano: os dólares acima de tudo. Ou você entra na roda viva do capitalismo, ou vira um eterno "loser". Até mais "loser" que Kim Jong-il, o dono da bomba. E assim caminha a humanidade. Quem não viver, não verá: os animais, os homens agarrados a seu dinheiro e suas fábricas... Se o desastre ecológico acontecer, ninguém vai sobrar para contar essa bizarra história.

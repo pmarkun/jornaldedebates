@@ -1,0 +1,29 @@
+---
+title: Lula não é o mentor de todas as melhorias sociais ocorridas nos últimos 20 anos
+date: 2006-10-25 21:00:00
+author: sen.eduardo.azeredo
+debate: JD no Congresso
+slug: lula-nao-e-o-mentor-de-todas-as-melhorias-sociais-ocorridas-nos-ultimos-20-anos
+status: publish 
+type: post
+---
+
+    (...) O Presidente Lula(...) insiste em dizer que foi ele que começou tudo, que ele é que faz tudo, que tudo começa a partir do seu Governo.   
+    É impressionante essa capacidade de tentar apropriar-se de idéias, de projetos, de programas elaborados e já adotados pelo meu Partido, o PSDB, e por partidos aliados.(...) No debate da TV Record, na última segunda-feira, não foi diferente: o Presidente Lula adotou aquela postura populista que o enaltece como o mentor único e exclusivo das grandes transformações sociais ocorridas no País durante os últimos vinte anos, como é o caso da inclusão das pessoas com deficiência(...)   
+    O Brasil é a nação em que esses cidadãos conquistaram o maior número de leis promotoras da inclusão, graças a sua grande capacidade de organização e mobilização. As principais leis em vigor (...) foram promulgadas, a maioria delas, ainda no Governo do meu Partido, o PSDB.(...)   
+    Esses movimentos receberam um grande apoio do Governo passado em suas reivindicações no campo da saúde, educação, assistência social, trabalho, renda e habitação popular, assim como receberam também do Governo José Sarney.(...) Quando o atual Governo alterou a interpretação da lei do Fundef( Fundo de Manutenção e Desenvolvimento do Ensino Fundamental e Valorização do Magistério ) (Lei 9.424, de 1996), foram suspensos os repasses das verbas públicas a essas entidades. Mais de 250 mil pessoas com deficiência ficariam sem acesso à educação(...) Coube (...)ao Senado, junto com a Câmara dos Deputados, lutar arduamente com as associações para mostrar ao Governo a injustiça que estava sendo praticada e para buscar uma solução ao caso.(...)   
+    Além disso, a lei que garantiu o acesso aos deficientes visuais acompanhados de seus cães-guia em qualquer estabelecimento público, sobre o qual o Presidente Lula falou tão enfaticamente no debate(...). A lei é fruto de projeto apresentado pelo Senador Romeu Tuma, do PFL! E foi agora devidamente detalhada na sua aplicação.(...)   
+    Nem tudo começou neste Governo, portanto, não pode continuar prevalecendo esse tipo de afirmação do Presidente Lula, porque a verdade não é essa. (...)   
+    Considere a própria estabilidade econômica. Se hoje a inflação está baixa, o custo dos alimentos foi reduzido, isso vem de longa data, desde a implantação do Plano Real no Brasil(...)   
+    O fato é que a estabilidade econômica não teve a participação do PT, que votou contra o Plano Real, que votou contra a Lei de Responsabilidade Fiscal, que sempre combateu o Programa de Reestruturação e Fortalecimento do Sistema Financeiro Nacional - Proer (...); criticou a negociação da dívida dos Estados, que foi fundamental para que nós não tivéssemos aqui o problema que a Argentina teve com as suas províncias, onde as províncias praticamente emitem dinheiro.     (...)Apesar de termos uma legislação avançada, nós precisamos cumprir essa legislação. A questão, por exemplo, do emprego para as pessoas com deficiência não vem sendo cumprida adequadamente em todo o Brasil. Precisamos garantir que o transporte escolar continue a ter recursos para que entidades como as Apaes e outras que cuidam das pessoas com deficiência tenham também recursos federais auxiliando o seu trabalho.   
+    (...) Tive oportunidade de apresentar um projeto em que procuro modificar o ProUni, porque o Programa não permite que estudantes que cursaram o ensino médio numa escola privada se candidatem às suas bolsas. No caso do ensino especial, a maior parte das escolas é privada. (...)   
+    Quero ainda(...) lembrar que, ao ter essa atitude de chamar para si toda a paternidade de projetos em relação às pessoas com deficiência, o Presidente nega a força da participação popular na construção do País, nega a luta histórica das pessoas com deficiência e de suas associações.   
+    (...) De forma bastante equivocada, têm sido feitas, nesta campanha eleitoral, críticas à privatização, de maneira genérica, sem se lembrar que a privatização pode ser boa ou ruim. (...) Seguramente, nessa área de telecomunicações, as privatizações deram certo, assim como no caso da companhia Vale do Rio Doce.   
+    E a Vale anunciou, ontem, a compra da mineradora canadense Inco, a segunda maior produtora de níquel do mundo. A operação, (...) posicionou a Vale do Rio Doce como a segunda maior mineradora do mundo. E, mais que isso, consagrou um processo de privatização que, a depender do Presidente Lula, não teria acontecido - segundo ele próprio afirmou em entrevistas recentes.(...)   
+    E, para aqueles que criticavam ou se diziam preocupados com a privatização da companhia, o valor em bolsa da Vale deve passar de US$59 bilhões para US$77 bilhões. Suas vendas anuais passarão de US$13 bilhões para US$18 bilhões. O lucro líquido combinado da Vale e da Inco alcançou US$5,6 bilhões em 2005. \*Mais investimentos, sem sombra de dúvidas, significam mais empregos no Brasil, para os brasileiros. Aliás, a própria Vale do Rio Doce, privatizada, aumentou sua oferta de postos de trabalho de 4 mil para 11 mil.(...)   
+    Se o Presidente não estivesse amarrado às críticas referentes à participação da iniciativa privada, seguramente as nossas estradas poderiam estar em melhor situação, com a concessão de rodovias de grande movimento à iniciativa privada, com a efetiva participação dos empreendedores privados no Programa de Parceria Público-Privada, que é letra morta, não entrou em ação até hoje(...)   
+  
+ Discurso de 25/10/2006  
+  
+ Leia a íntegra de discurso [aqui](http://www.senado.gov.br/sf/atividade/plenario/sessao/disc/listaDisc.asp?s=182.4.52.O).  
+

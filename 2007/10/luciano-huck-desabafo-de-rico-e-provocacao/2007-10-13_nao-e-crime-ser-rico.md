@@ -1,0 +1,11 @@
+---
+title: Não é crime ser rico
+date: 2007-10-13 21:00:00
+author: carlos.conceicao
+debate: Luciano Huck: desabafo de rico é provocação?
+slug: nao-e-crime-ser-rico
+status: publish 
+type: post
+---
+
+A lei brasileira não pune o cidadão por ter nascido em berço de ouro, precisamos deixar de ser hipócritas, condenar e discriminar as pessoas que possuem riquezas. Ser rico não é crime, porém, se a riqueza do indivíduo foi conquistada de forma obscura e ilegal ele estará sujeito a responder aos ditames da lei e pagar pelos crimes cometidos na formação da sua riqueza.                    Como cidadão brasileiro, o senhor Luciano Huck tem direito de desabafar, exigir os seus direitos constitucionais e garantias de ir e vir.  A responsabilidade é  das autoridades legalmente constituídas e  que tem a obrigação de nos dar a devida proteção e segurança.                            A partir do momento que o sr Luciano Huck  resolveu usar um relógio que o valor material está acima do que a maioria de nós, simples mortais, não temos o poder financeiro para adquirir, assumiu também os riscos de ser assaltado e ter a sua integridade física violentada.                    Logicamente, não  se justifica a violência nem a falta de segurança a que todos estamos sujeitos quando andamos pelas ruas de qualquer cidade deste país, infelizmente a falta de segurança e a violência urbana tornaram-se problemas crônicos  da sociedade brasileira.                      Sr. Luciano Huck deve utilizar o seu poder de homem de comunicação,  usar  o  seu espaço importante, o horário nobre que ocupa na rede globo para desenvolver e divulgar projetos  que ajudem a combater a violência e a criminalidade.  O seu programa atinge um contingente grande de adolescentes e jovens que precisam ser  educados e orientados sobre como fugir da violência ou  evitá-la  em sua vidas.                    A pior violência,  a meu ver,  a mais difícil de combater é a causada pelo preconceito social , pela inveja material. Vivemos numa democracia em que o acúmulo de bens material é permitido. O capitalismo selvagem domina.  A solução é educarmos as nossas crianças para a  paz e a cidadania,  e a valorizarem as riquezas morais e espirituais.

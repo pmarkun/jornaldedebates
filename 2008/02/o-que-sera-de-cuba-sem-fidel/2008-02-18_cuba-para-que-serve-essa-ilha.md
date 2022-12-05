@@ -1,0 +1,11 @@
+---
+title: Cuba para que serve essa Ilha
+date: 2008-02-18 21:00:00
+author: antonio.barros
+debate: O que será de Cuba sem Fidel?
+slug: cuba-para-que-serve-essa-ilha
+status: publish 
+type: post
+---
+
+Em termos geopolíticos Cuba nunca poderia rivalizar-se com o Império, mas por motivos históricos resolveu enfrentar o Grande Irmão e se saiu mal, pois os únicos prejudicados foram a população, livre, mas faminta e sem esperanças. Claro que a Revolução Cubana foi um marco em sua época, mas agora se tornou anacrônica, pois mesmo com um progresso em algumas áreas sociais, médicas e educacionais, cada vez mais se empobreceu.Para os que não conhecem a história da Ilha ela foi sempre um joguete nas mãos da Espanha e depois dos EUA, até a revolução era um grande Bordel a serviço dos americanos.  Neste mundo globalizado não há escapatória ou vc participa do comercio mundial ou vegeta na miséria, veja os exemplos de países da América do Sul e da África, o Brasil por seu tamanho e população  gigantesco, teve a sorte de sair dessa trilha da pobreza absoluta e queira ou não é o Líder em nossa região, claro um Líder vigiado de perto pelo Grande Irmão, por isso é submisso e oportunista e integrado agora completamente ao esquema  de obediência econômica aos que tem poder.Portanto Cuba nunca será nada além do que é na atualidade, um país atrasado, sem importância, que mesmo que se democratize  não tem muito a oferecer.Conheci Cuba na década de 90 e agora 16 anos depois encontra-se em situação pior, pois antes dependia da URSS  e agora depende do Chavez  boquirroto e  autoritário.Claro que toda essa aura Fidelina é que manteve cuba na mídia, mas o futuro no será mais uma das ilhas do Caribe, obediente e pronta a servir os Senhores Imperiais.O mundo atual é isso uns poucos mandam e o restante obedece.Exatamente como na Roma Antiga, o mundo gira e sempre todos dependem de poucos.É a sina dos Impérios que ao longo de nossa curta História escrita existiam os dominadores e os dominados, os Senhores e os Escravos.Mesmo a Igreja Romana para manter seu poder utilizou todas essas artimanhas para oprimir, escravizar e lavar as mentes das massas ignorantes  como um Império que até foi bem sucedido, mas agora ruma para o fim.

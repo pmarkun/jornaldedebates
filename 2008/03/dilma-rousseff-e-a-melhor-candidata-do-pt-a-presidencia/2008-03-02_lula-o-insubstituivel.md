@@ -1,0 +1,11 @@
+---
+title: LULA: O INSUBSTITUÍVEL!
+date: 2008-03-02 21:00:00
+author: max.paim
+debate: Dilma Rousseff é a melhor candidata do PT à Presidência?
+slug: lula-o-insubstituivel
+status: publish 
+type: post
+---
+
+\*Agora sim. Quem é da turma do Mainardi poderá trocar o "Epa!" por "Oba!". A era Lula petista vai acabar em 2010. A não ser que ele tenha um gás a mais para concorrer, mas acho difícil. Agora, o messias de Garanhuns só vai cuidar de "Viracopos". Ninguém tomou o poder com tanta lábia como Lula. É impressionante como o povo precisa de alguém com fala fácil para acreditar e ter alguma esperança. Uma pessoa que dê uma de Lima Duarte: o Salvador da Pátria. Alguém com capacidade de fazer com que a máquina administrativa federal sustente seus milhões de eleitores com comida e dinheiro. De preferência que saia da mesma situação. Não importa se tenha supostamente cortado o dedo para se aposentar por invalidez e ser sustentado pelo partido que fundou. \*Os governos de centro-direita não são os mais adequados, mas esse de centro-esquerda tipo violino, que se toma com a esquerda mas se governa com a direita é pior. Tudo isso é porque o país, desde a sua colonização, dependeu do estado para se desenvolver. Não foi plantado aqui nenhuma noção de desenvolvimento privado. Assim, o mundo não tem exemplo de Estado mínimo, um dos melhores modelos. Aí ficamos assim, dependendo de messias salvadores que se aproveitam dos eleitores, que por cegados por suas necessidades, votam em qualquer bom falador que apareça. Foi assim até hoje, desde a instauração da democracia. Mas tomara que isto seja uma provação que mais adiante nos servirá de escudo contra esses charlatões. \*Acho que o PT não tem bons candidatos ao nível de Lula. Bons no sentido de convencer com a fala. Tá na hora de um Cristóvam Buarque do PDT entrar. Ou até quem sabe a Heloísa Helena, por ser mulher. O bom mesmo era modificar o sistema, mas isso são outros 500 anos. \*Agora, resta-nos comemorar quando uma praga dessas vai embora. Deixando seu governo para ser culpado pelo que acontecer de negativo em administrações futuras. Mas pelo menos, que o próximo presidente invista mais em saúde e educação e tenha ao menos um curso superior, para nos poupar ao menos, de seus discursos mal improvisados e desprovidos de tanta asneira. Tchau Lula! Continue passando bem, como sempre!

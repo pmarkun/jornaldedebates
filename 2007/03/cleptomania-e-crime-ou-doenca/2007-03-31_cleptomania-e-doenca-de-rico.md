@@ -1,0 +1,11 @@
+---
+title: CLEPTOMANIA É DOENÇA DE RICO
+date: 2007-03-31 21:00:00
+author: marindo.leite
+debate: Cleptomania é crime ou doença?
+slug: cleptomania-e-doenca-de-rico
+status: publish 
+type: post
+---
+
+Com todo o respeito que o rabino merece, e Henry Sobel merece bastante, o fato dele ter enfiado as gravatas no bolso e saido da loja sem pagar não pode ser tratado como uma distração que se resolve com um tapinha na mão, e o rabino sabe disso. Sabe tanto que já deu entrevista reconhecendo o problema, foi a uma clinica pedir tratamento e tirou licença da sua sinagoga. Sair sem pagar é crime tanto aqui como nos Estados Unidos, porque é furto e furto pode dar cadeia.É para isso que eles colocam cameras nas lojas ou aquelas etiquetas que fazem o alarme apitar na porta. Se fosse só um problema de doença, ao invés de seguranças as lojas iriam ter médicos de plantão, e seria gozado ouvir o cara falando com a pessoa flagrada enfiando quatro gravatas no bolso: "Desculpe, senhor, mas o senhor esqueceu de pagar pelas gravatas no seu bolso. Quer me acompanhar e iniciar seu tratamento para recuperação de cleptomania?" Depois, junto com a conta pelas gravatas, a loja iria cobrar a conta do médico do distraído. Aí sim quero ver se alguem ia se distrair de roubar de lojas com a conta de médico articular do jeito que anda!Mas o rabino pegou, não pagou, tem que se ver com a polícia. Se ele não fosse rico, ia ficar na delegacia mesmo e ninguém ia dar bola. Essa história de cleptomania é desculpa para roubo de rico. Ninguem chama pobre de cleptomaníaco, é logo tratado como ladrão mesmo. Então, vamos acabar com esse preconceito. Não faz muito tempo, pegaram, uma senhora que jogou um pacotinho de manteiga na sacola e foi saindo sem pagar, ela pegou um ano de cadeia. Ninguém se preocupou de oferecer tratamento, porque no caso do pobre todo mundo é realista e chama de roubo o que é roubo.Então vamos falar às claras e chamar o rabino de ladrão. Lamento muito, mas ele encerrou sua carreira de rabino com essa, não tanto com os cinco dedos nas quatro gravatas mas com a tentativa de se desculpar e de querer justificar o seu ato quando nesta sociedade injusta só se safa destas situações quem tem dinheiro e amigos poderosos.

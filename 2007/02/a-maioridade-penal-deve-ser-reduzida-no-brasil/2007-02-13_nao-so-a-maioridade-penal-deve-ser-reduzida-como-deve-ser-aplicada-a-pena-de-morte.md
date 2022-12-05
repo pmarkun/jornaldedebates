@@ -1,0 +1,11 @@
+---
+title: Não só a maioridade penal deve ser reduzida como deve ser aplicada a pena de morte.
+date: 2007-02-13 22:00:00
+author: felipe.boechat
+debate: A maioridade penal deve ser reduzida no Brasil?
+slug: nao-so-a-maioridade-penal-deve-ser-reduzida-como-deve-ser-aplicada-a-pena-de-morte
+status: publish 
+type: post
+---
+
+As culturas mais primitivas do planeta possuem um ritual, um rito de passagem, no qual o menino se torna guerreiro. Geralmente, são rituais dolorosos, nos quais a criança deve provar suas capacidades de lidar com o perigo. A idade, geralmente, é muito escassa. São crianças de fato. No livro "Do Espírito das Leis", de Montesquieu, recebemos a informação de que o menor se tornava maior quando tinha a capacidade de erguer uma espada. Reparem que em nenhum caso a incapacidade mental foi sequer comentada. Ora, se o que os antigos levavam em conta era a capacidade de matar da criança, vemos que a origem desse instituto foi desvirtuado. Concordo que há casos em que a criança pode agir sem entender muito bem o que está a fazer. Entretanto, o bem mais valioso que temos é nossa vida, mais valioso que a incapacidade do menor. Portanto, se formos atacados por um menor e o matarmos, teremos a nosso favor a legítima defesa, de qualquer maneira. O que temos hoje em dia em nosso país e a institucionalização da impunidade. Os criminosos sabem que os menores serão absolvidos de seus atos, que de impensados não têm nada, e aliciam os menores, ficando impunes mentor e o menor, que, desculpem-me, aprendem a criminalidade tanto fora quanto dentro da cadeia e eu preferiria aprender em liberdade. Vejo pessoas descontroladas defendendo a impunidade dos menores, porém, pergunto para elas: vocês já foram menores de idade? Eu já fui, decerto, e posso afirmar que desde a tenra idade sei muito bem que MATAR É ERRADO. Se vcs ficaram sabendo disso com mais de 12 anos, devo dizer que foram criados como retardados, num mundo de conto de fadas. SABEMOS MUITO BEM, DESDE CEDO, O QUE É CERTO E O QUE É ERRADO, E SABEMOS QUE SE NINGUÉM DESCOBRIR, TENTAMOS FAZER NOSSAS TRAVESSURAS. Com isso, se a pessoa, menor ou não, souber que nada acontecerá, agirá tranquilamente. PRECISAMOS ACABAR COM A CERTEZA DA IMPUNIDADE. É só isso.

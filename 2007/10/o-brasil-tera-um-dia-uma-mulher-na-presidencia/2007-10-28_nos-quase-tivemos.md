@@ -1,0 +1,11 @@
+---
+title: Nós quase tivemos...
+date: 2007-10-28 22:00:00
+author: rodrigo.santana
+debate: O Brasil terá, um dia, uma mulher na presidência?
+slug: nos-quase-tivemos
+status: publish 
+type: post
+---
+
+Um dia quase tivemos uma mulher no poder. Se é uma pessoa honesta, não sei dizer... mas, pelo menos, aparentava. Era a pessoa ideal para aquela ocasião, no meu ponto de vista. Mas, o machismo e a dor de cotovelo tucanas falaram mais alto. E colocaram a dupla Serra e Rita. E como irrita!!! Inventaram uma história sórdida na tal da Lunus, do marido da então pré-candidata. Pior: nada se provou. Desestabilizaram uma candidata com a presidência na mão para colocar no lugar essa "coisa feia" que entregou a cidade de São Paulo nas mãos "daquilo" e hoje governa o maior estado do Brasil com um apolíticazinha de quinta, onde nada se faz, nada se planeja, nada se começa e nada se termina. Um governo que está indo para 20 anos sem conseguir terminar um mísero corredor de ônibus. E ainda querem esse troço na Presidência da República... ai, Cristo... Se as coisas seriam melhor do que estão hoje com Roseana no poder, eu não sei dizer. Sei que estão infinitamente melhores se fosse com "A Coisa" no Planalto. E ainda teremos tempo de nos arrepender de ter "A Coisa" lá no Planalto. Chamo de "A Coisa" porque ele realmente parece uma "Coisa". É claro que quando o Brasil teve mulheres no comando de cidades ou de estados, as experiências não foram lá das melhores... mas não foram por puro machismo... o próprio povo que votou, achincalhou. As pessoas que estavam ao redor das mandatárias também nada ajudaram, o que fez com que elas governassem quase que sozinhas. Mas dentro do propósito que tinhm, fizeram bem feito. Eu não me arrependo do meu voto dado à Luiza Erundina e à Marta Suplicy. Foram administrações coerentes, abertas... sem factóides, como vimos com Maluf, Pitta (ai Jesus... isso foi prefeito dessa cidade...) e agora "A Cria da Coisa". Quem sabe um dia teremos uma mulher na presidência. Não será agora... mas creio que em 2014, 2018... Só sei que a chance de ter inaugurado ascenção feminina ao poder maior da república fora cerceada por um bando de "coisas" liderada pela "Coisa-Mor". Espeo que nas próximas campanhas, as criaturas criadas pela "Coisa" não sejam tão sujas.

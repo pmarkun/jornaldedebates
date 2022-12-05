@@ -1,0 +1,82 @@
+---
+title: Onde quer que Che Guevara pousasse, aconteciam calamidades com conseqüências desastrosas
+date: 2007-10-06 21:00:00
+author: nelson.valente
+debate: Por que Che Guevara continua sendo um mito?
+slug: onde-quer-que-che-guevara-pousasse-aconteciam-calamidades-com-consequencias-desastrosas
+status: publish 
+type: post
+---
+
+ALIANÇA PARA O PROGRESSO  
+
+  
+
+ (\*) Nelson Valente  
+
+ Em agosto de 1961, os jornais e revistas de todo o mundo publicaram fotos procedentes de Punta del Este, famosa cidade praiana do Uruguai. Mas não de vedetes e estrelas de cinema, porém, de cavalheiros, profissionais da diplomacia, da política, das finanças, da economia, da sociologia, os quais sob aquele sol e aquelas águas acostumadas a banhar idéias mais curtas e cabelos mais compridos, estarão concentrados no emaranhado jogo de proposta e contrapropostas, de avanços e recuos de uma reunião internacional: a Reunião Extraordinária do Conselho Interamericano Econômico e Social em Nível Ministerial.   
+
+ Essa reunião tem uma história bastante comprida, a precedê-la, a própria história do pan-americanismo, com quase dois séculos de reuniões, tratados, declarações e idéias. O capítulo que abrange os nossos dias começa com a carta do ex-presidente Juscelino Kubitschek, ao seu colega dos Estados Unidos, Dwight Eisenhower, datada de 28 de maio de 1958. Em essência a carta dizia: assim como uma corrente não é mais forte do que seu elo mais fraco, o mundo livre liderado pelos estados Unidos não poderia ser mais forte do que o mais fraco e o mais pobre dos países que o integram. E partindo daí lançava a tese de que o acelerado desenvolvimento econômico e social da América Latina deveria passar a ser considerado pelos Estados Unidos como um problema político e estratégico da mais alta importância, peça de seu próprio sistema de segurança.  
+
+A essa tese o Brasil dava o nome "logan" de Operação Pan-americana e ajuntava que o desenvolvimento desta região ocidental não seria atingido, a menos que, a exemplo do que fizeram em relação à Europa depauperada que emergiu da II Guerra Mundial, os Estados Unidos, agora ajudados pelos próprios países europeus por eles reerguidos, passassem a falar e agir em matéria de ajuda à América Latina, em termos de bilhões e não mais de milhões. Antes de passar a palavra aos Estados Unidos, o Brasil enviou-lhes técnicos para lembrar-lhes que, do jeito que as coisas iam, a União Soviética sozinha, teria em 1980, renda per capita superior à renda per capita de todo o bloco de países ocidentais.  
+
+A disparidade entre países ricos e países pobres, bem como as relações de domínio e proteção, de exploração ou de solidariedade entre eles são coisas que sempre existiram, desde que o mundo é mundo o que em nossos dias há de novo nessas relações é, primeiro, que essa disparidade tende sempre a agravar-se, isto é, os países ricos se vão tornando cada vez mais ricos, distanciando-se dos que são pobres e, segundo, que graças à própria tecnologia que possibilitou esse estado de coisas, os países pobres não mais se conformam com sua própria pobreza. Daí resulta o dilema diante do qual se encontram os Estados Unidos; ou eles ajudam os países pobres a desenvolver-se ou, estes, para desenvolver-se, acabarão optando pela mudança das regras do jogo. Em outras palavras: eles se desenvolverão dentro do regime de vida ocidental, de preferência, ou fora dele, se necessário. Não faz chantagem quem diz aos Estados Unidos: "ajudem-nos ou não poderemos resistir ao comunismo". Pode parecer frase de chantagista, mas trata-se do desesperado apelo de um aliado, que é o que a América Latina nunca deixou de ser em relação aos Estados Unidos. Na base da decisão americana de tudo fazer por ver consolidar-se ao sul do Rio Grande uma civilização democrática e progressista, terá de estar o propósito de responder a essa ameaça.  
+
+Cada vez mais se generaliza a convicção de que o principal resultado da Operação Pan-americana tenha sido encontrar para os Estados Unidos uma atitude em relação à América Latina que, só mais tarde, eles adotariam. Pois, no plano das coisas concretas, os dois únicos frutos que resultaram da frondosa, magnífica e riquíssima árvore da Operação Pan-americana aí estão, não a afirmá-la, mas antes a negá-la: o Banco Interamericano de Desenvolvimento, cujo capital se reduz à soma de l bilhão de dólares, simplesmente ridícula diante da magnitude dos problemas em que se debate a América Latina, e ainda assim, metade do mesmo tendo sido realizado pelos próprios países latino-americanos, e a Ata de Bogotá, endosso que, em setembro do ano passado, os latino-americanos deram ao plano de 500 milhões de dólares para a América Latina, preparado às pressas por Eisenhower sob a ameaça de Kruchev de soltar foguetes contra Nova Iorque se os Estados Unidos agredissem Cuba. O plano foi feito, o endosso latino-americano foi obtido, mas o dinheiro ainda não veio para a América Latina. O capital de 1 bilhão de dólares para o banco Interamericano foi a negação mais categórica que se poderia contrapor a tudo que havia de essencial e profundo na Operação Pan-americana. Erraram os Estados Unidos ao propô-lo; erraram mais ainda os latino-americanos, ao aceitá-lo. Isso é tudo que resultou das reuniões do Comitê dos 21 criado pela Operação Pan-americana. É forçoso reconhecer que a dupla Eisenhower-Dulles não era terreno em que medrassem frutos aproveitáveis.  
+
+Eisenhower recebeu de Truman uma América Latina débil e subdesenvolvida, mas menos pressionada por problemas financeiros e mais esperançosa em relação à ajuda que poderia vir a receber dos Estados Unidos, e legou-a a Kennedy à beira da insolvência, ainda mais debilitada pelo pauperismo, hostil como nunca o fora antes e atingida, em Cuba, do mal que sempre se procurara evitar, o comunismo.  
+
+Kennedy, liberal ele próprio e cercado, na maioria dos liberais tem outra visão do problema latino-americano. A reunião de Punta del Este foi proposta por ele como o segundo dos dez pontos contidos no discurso que em 13 de março, pronunciou diante de todos os Embaixadores latino-americanos em Washington, exceto os de Cuba e da República Dominicana (relações diplomáticas rompidas), e no qual, após dizer que os povos deste Continente devem "proceder com ousadia, consoante o conceito majestoso da Operação Pan-americana", lançou a nova cruzada a que denominou "Aliança para o Progresso". São os seguintes, em resumo, os dez pontos mencionados por Kennedy: 1° elaboração de um Plano de Dez Anos, para cuja realização os Estados Unidos estarão prontos a prover recursos de alcance e magnitude comparáveis aos que destinaram à reconstrução das economias da Europa Ocidental (Plano Marshall); 2° convocação de uma reunião de nível ministerial do Conselho Interamericano e Social, no qual se iniciaria a elaboração desse grande plano, que constituirá a base da Aliança para o Progresso; 3° emprego de 500 milhões de dólares previstos na Ata de Bogotá; 4° apoio à integração econômica latino-americana; 5° colaboração do exame sério e minucioso dos problemas relacionados com o comércio exterior de produtos primários; 6° aceleração imediata do programa de emergência intitulado Alimentos para a Paz; 7° formulação de planos para o estabelecimento de laboratórios regionais na América Latina destinados à pesquisa em medicina, agricultura, física, astronomia; 8° aceleração dos programas de preparação pessoal especializado para dirigir as economias ora em desenvolvimento da América Latina; 9° reiteração do compromisso dos EEUU de defenderem qualquer nação americana cuja independência esteja ameaçada e apoio à proposta chilena de procederem os latino-americanos a uma "sensata limitação de armamentos". Além desses pontos, Kennedy a acenou com outro, que não escreveu: sua presença na reunião que convocara. Seria a prova provada de sua sinceridade de propósitos, uma homenagem à América Latina. Essa oportunidade já está perdida. Kennedy não irá a Punta del Este. É claro que as justificativas existem: a crise de Berlim, a possível ida de Fidel Castro; o fato do Congresso americano estar votando a lei de ajuda ao exterior e sua presença é indispensável etc.  
+
+Ao constatarmos a ausência de Kennedy, nos lembramos de que a ordem de invadir Cuba foi dada por ele após ter pronunciado o discurso da Aliança para o Progresso, poderíamos concluir que o êxito da reunião de Punta del Este começou a perigar mesmo antes dos delegados lá chegarem. Preferimos meditar nas palavras pronunciadas em 22 de julho por Chester Bowles:   
+
+"Sob o governo Kennedy, os Estados Unidos voltam a descobrir a América Latina. Houve uma mudança, e hoje é visível nos Estados Unidos um desejo de lutar contra a pobreza, contra a injustiça dos sistemas agrícolas e uma vontade de ajudar os novos governos democráticos. O mais importante é que repelimos a letargia, a apatia e o sentimento de indiferença que existia".  
+
+  
+
+  
+
+ Guevara passou três semanas cheias de emoções políticas e pessoais (de 2 a 20/8/61), etapa mais emocionante de sua vida e quando o presidente John Kennedy lançou o ambicioso projeto da aliança para o Progresso, em Punta del Este, no Uruguai.  
+
+ Os maiores países da América Latina, a Argentina e o Brasil, participavam das idéias gerais do projeto de Kennedy e seus presidentes pareciam manter vínculos invisíveis com o mandatário norte-americano. O fracasso da invasão contra Cuba enfraquecera Kennedy que, buscou uma aliança duradoura com os países do sul. Estes países eram governados por homens reformistas da nova geração, para eles apoiar Kennedy representava uma possibilidade de concluir seus períodos presidenciais seriamente ameaçados.  
+
+Guevara foi convidado verbalmente a visitar o Brasil, o presidente Jânio Quadros, pelo chefe da delegação e ministro da Economia Clemente Mariani. No dia seguinte, os brasileiros confirmaram oficialmente o convite como também ele teria um encontro com Arturo Frondizi em Buenos Aires.  
+
+O principal assunto destes encontros com Jânio e com Frondizi, era a Aliança para o Progresso.  
+
+Guevara fez uma análise minuciosa do projeto norte-americano, após sua exposição por Douglas Dillon. Comparou os progressos de Cuba em dois anos de revolução com os progressos prometidos à América Latina, mostrou-se cético sobre a possibilidade de que os fundos de ajuda mencionados chegassem algum dia a ser entregues, e esboçou as bases sobre as quais Cuba poderia voltar a considerar sua participação nos planos interamericanos. Sua intervenção causou forte impacto.  
+
+Guevara construiu uma peça oratória sumamente concisa, que se caracterizava pela economia de adjetivos e pelo tom elevado da crítica. Sentia-se que Cuba abria um compasso de espera às consultas pessoais que os presidentes Frondizi e Jânio Quadros queriam fazer por intermédio de Guevara e que, a idéia de um sistema pan-americano, reconstruído pelo espírito kennediano, não era totalmente desagradável a Cuba, com a condição que fosse respeitada a sua forma socialista de governo.  
+
+Guevara aplicou um golpe nos delegados norte-americanos, lendo um documento secreto relativo ao desenvolvimento econômico da Venezuela. Eles empalideceram e alegaram não ser um documento oficial norte-americano e sim a opinião de um funcionário. A polêmica provocada causou transtornos e continuou viva na Venezuela.  
+
+Entre os problemas criados pela visita de Guevara a Buenos Aires existia o relativo ao documento de identidade que ele ingressaria no país, utilizava-se de um passaporte, necessitando o visto na embaixada Argentina em Montevidéu. Isso era exigido e cai por terra o segredo sugerido pelo presidente Frondizi e todos, inclusive a CIA, sabem que Guevara visitaria a Argentina.  
+
+No dia 18/8/61, Guevara viajou para Buenos Aires e lá foi recebido por uma pequena escolta sob as ordens do chefe da casa militar, no aeródromo de Don Torcuato, a uns 30 km da capital.  
+
+Guevara e Frondizi confidenciaram a portas fechadas durante 1 hora e 20 minutos. Os temas de desenvolvimento latino-americano foram os primeiros da conversa e o das questões econômicas. Mas o tema da entrevista era outro, ou seja, seria inaceitável que Cuba ingressasse numa organização militar extracontinental, que se incorporasse ao Pacto de Varsóvia. Se Cuba desse esse passo, seu retorno à família interamericana tornar-se-ia impossível.  
+
+Guevara responde que esta hipótese não ocorreu, mas é fato que cuba conta com assistência militar soviética e dos demais países socialistas.  
+
+Os dois discutiram apaixonadamente os temas latino-americanos, o presente e o futuro da Argentina e de Cuba. Enquanto conversavam, um furacão percorria os gabinetes dos ministros, os escritórios dos chefes militares, as agências informativas e as embaixadas.  
+
+Guevara deixa a Argentina e voa para Brasília. No dia 19/8/61, o presidente Jânio Quadros condecorou Guevara com a Ordem Nacional do Cruzeiro do Sul, numa cerimônia improvisada no Palácio do Planalto. Ele ignorava que iria receber uma condecoração, mas também o caráter oficial do encontro. Ele não tinha como retribuir a condecoração, como é usual, e o discurso de Jânio foi breve. Preferiu Guevara retribuir com discurso breve, aceitando a distinção como entregue ao governo revolucionário e ao povo cubano, sem significado pessoal.  
+
+ Em 19 de agosto, Che Guevara é recebido por Jânio Quadros em Brasília, o qual aproveita a ocasião para atender um pedido do núncio apostólico, monsenhor Lombardi, para interferir na libertação de 20 padres espanhóis, presos em Cuba.   
+
+No caso dos padres, Guevara concorda com a libertação, avisando, entretanto que, dentro das regras cubanas, eles serão em seguida expulsos para a Espanha. Jânio manifesta sua opinião de que a expulsão é um assunto interno de Cuba, que só a ela cabe resolver. O Brasil defende a libertação e com esse ato considera o pedido satisfeito.  
+
+ A conversa entre Guevara e Jânio girou sobre: a conveniência de não aderir ao pacto de Varsóvia, insinuações sobre a democracia representativa, porta aberta para Cuba na organização norte-americana.  
+
+No Rio de Janeiro e em São Paulo a repercussão foi forte com as massas nas ruas, bandeiras cubanas e retratos de Che Guevara. O escândalo estourou como na Argentina, e Jânio, uma semana depois abandonou o governo sob as ameaças da direita.  
+
+Frondizi recebeu tamanha quantidade de ataques que antes de completar sete meses, foi também derrubado. Já, Kennedy, a quem coube o papel equívoco de invasor armado e reabilitador diplomático, foi assassinado dois anos depois, numa confabulação obscura onde as relações com Cuba foram fator de sua transcendência.  
+
+Na vida de Ernesto Che Guevara, a inteligência e a violência se alternaram o tempo todo.  
+
+O ano de 1963 apresentou-se agitado em toda América Latina. No Brasil crescia a organização das ligas camponesas, sob a tolerância do presidente João Goulart, um nacionalista que se apoiava cada dia mais nos esquerdistas dos sindicatos e nos intelectuais.  
+
+Resumindo, onde quer que Che Guevara pousasse, aconteciam calamidades com conseqüências desastrosas, aqui no Brasil, foi condecorado por Jânio Quadros e cinco dias depois, a renunciar.  
+
+(\*)é professor universitário, jornalista e escritor  
+

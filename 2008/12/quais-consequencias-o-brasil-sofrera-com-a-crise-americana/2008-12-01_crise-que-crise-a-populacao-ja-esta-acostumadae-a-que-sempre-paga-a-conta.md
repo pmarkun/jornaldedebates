@@ -1,0 +1,12 @@
+---
+title: Crise que crise ! A população já está acostumada...!E a que sempre paga a conta.
+date: 2008-12-01 15:37:06
+author: carlos.ferreira4
+debate: Quais consequências, o Brasil sofrerá com a crise americana?
+slug: crise-que-crise-a-populacao-ja-esta-acostumadae-a-que-sempre-paga-a-conta
+status: publish 
+type: post
+---
+
+A classe media brasileira já está acostumado a pagar as contas do prejuizo. Mensalão, previdencia, enchente a classe media que é a que paga imposto, a que trabalha, a que paga as contas eo rombo do governo ! Porque não vai pagar tambem as contas da crise aqui no Brasil. Ou sera que a nossa famosa ministra Dilma terá a solução para os problemas...! Super Ministra hahahaha. Imaginem esta senhora que tem em seu curriculo alguns atos terroristas e alguns assaltos ! Imaginem quando chegar a presidencia..! Ela dará cidadania brasileira para O Ben Laden. Eles são iguais ou não...? Qual é a diferença...! A diferença e somente o tempo pois o ato e o mesmo. . . ! Explodiu a porta de uma banco com uma bomba....! O Ben Laden explodiu as torres gemeas com uma bomba, fez uma aeronave uma bomba voadora. Como diz o pedreiro a ordem dos tratores não altera o viaduto.Está e a candidata do do nosso Presidente Lula que acha que o PT fara esta Senhora a sussessora de seu governo.Lula pegou um helicopitero e foi sobrevoar Santa Catarina e fazer a sua politica pois aprendeu com Bush filho, não fazer o mesmo em Oklahoma e foi correndo para Santa Catarina fazer a sua politica em cima de um estado maravilhoso e de pessoas boas e trabalhadoras. Tanto que vendo a reportagem pela TV em momento algum vi alguem pedir algo . Vi sim todos agradecendo a ajuda humanitaria de todo o Brasil e sempre dizendo o mesmo ...- É dificil mas temos que continuar a vida, recontruir tudo. Parabens povo de Santa Catarina pela dignidade e o carater de seguir adiante em recostruir seus lares, suas cidades e seu estado.
+A ajuda que estão recendo e do povo brasileiro que se une a voces para a futura recontrução de suas vidas. Será que isso e um bom exemplo para esta crise que todos estão falando...! Que crise.....O dinheiro apenas trocou de mãos e a crise tanto aqui como lá e o povo que paga só com uma diferença. Lá se paga e vê alguma coisa sendo feita. Aqui se paga e nunca sai do projeto até o povo esquecer. Esquecem tudo...mensalão...o avião da Tam...O bolsa familia, mais de 40 milhôes de familias igual a 40 milhões de volta e quem vota contra não ganha mais...

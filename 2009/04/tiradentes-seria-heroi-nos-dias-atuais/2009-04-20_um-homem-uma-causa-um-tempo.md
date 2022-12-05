@@ -1,0 +1,18 @@
+---
+title: Um Homem, uma causa, um tempo
+date: 2009-04-20 11:08:33
+author: carlos.beltrao
+debate: Tiradentes seria herói nos dias atuais?
+slug: um-homem-uma-causa-um-tempo
+status: publish 
+type: post
+---
+
+Fico a me indagar se fiquei perdido no tempo, ou se ele passou por mim tal qual uma borracha sobre uma linha no papel. Não consigo compreender como a memória nacional, de uns certos governos para cá, encontra-se relegada a um segundo plano, a coisas até que não nos dizem respeito. O fato de ser dado ao Alferes mineiro um lugar de destaque no panteão dos heróis nacionais, fala de uma época onde o povo brasileiro vivia e sobrevivia sob o tacão do colonizador, o movimento do aual participaram poetas, intelectuais e o militar em questão, era um sonho, um grito no deserto.
+Joaquim José da Silva Xavier diante da covardia dos demais, tomou sobre seus ombros a responsabilidade da liderança e da rebeldia contra a Coroa Portuguesa, não ficou a choromingar e a amaldiçoar-se diante da gravidade do fato e o que ocorreu todos sabem. 
+Os dias atuais necessitam de um herói? Contra quem? Bem colocada a questão, pois ao invés de existir a política de sufocamento e exploração de nossos bens pelo colonizador, estamos à mercê de uma "monarquia" às avessas, comandada a partir do Planalto Central por políticos que entendem que são donos de nossa Nação, podem e devem fazer o que bem entendem e da forma pela qual acham a "melhor" desde que beneficie a eles próprios e seus representados. Não, creio que não teríamos lugar para um Tiradentes nesta atual situação, de forma alguma. E é justamente neste estado de coisas onde "mora o perigo" e também as conseqências derivadas dp surgimento de um herói neste sentido.
+Tiradentes esteve num movimento onde a cobrança de impostos sufocava o povo da época, os brasileiros trabalhavam para sustentar uma administração repleta de opulência e regalias, além de encontrar-se endividada até a raíz do cabelo - quem conhece um pouco de história sabe dos financiamentos de Portugal àquela época junto à Inglaterra e outros países - e também ser ineficiente no trato com os "bens" que não eram deles, muito pelo contrário, eram do nosso povo.
+A colônia simplesmente supria de tudo a Coroa Portuguesa, em troca nada recebia, apenas impostos e mais impostos além de viver na mais absoluta falta de obras estruturais, escolas e uma administração que fosse mais independente (do Poder Português) e que atuasse mais para os brasileiros.
+Será que temos algo em comum hoje, comparando àquele passado?
+Voltando à primeira linha deste artigo, justifico a pergunta pelo seguinte: tenho absoluta certeza de que os heróis do passado ficaram realmente no passado (na semana anterior na coluna do José Simão ele publica: perguntaram a um menino se ele sabia quem era Tiradentes e a resposta: é um feriado! pode ser até brincadeira mas é esta de fato a visão que alguns brasileiros tem dos homens de nossa história. Talvez por simples revanchismo político cuidaram de deixar em segundo e terceiro plano estes que antes aqui pisaram e contribuiram para a formação deste país chamado Brasil. Me revolta ver pixado sobre um muro de escola aqui em Recife as figuras de Ernesto "Che" Guevara, Fidel e outros desta linhagem com a inscrição: "Nossos Heróis", ora senhores é muita imbecilidade!
+Finalizando e voltando a questão principal do debate, creio que Tiradentes hoje talvez fosse, de fato, um herói se ele se levantasse contra esta "derrama" de impostos a qual estamos submetidos, cada vez mais cruel, mais acachapante que nos toma para as benesses da "Corte" lá de Brasília e à qual estamos submetidos, sem receber nada em troca, mais uma vez. Será que a história se reretiria?

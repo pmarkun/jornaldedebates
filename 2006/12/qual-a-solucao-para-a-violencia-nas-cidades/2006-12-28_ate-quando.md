@@ -1,0 +1,11 @@
+---
+title: ATE QUANDO!
+date: 2006-12-28 22:00:00
+author: simone.drumond
+debate: Qual a solução para a violência nas cidades?
+slug: ate-quando
+status: publish 
+type: post
+---
+
+O NOSSO POVO VAI SUPORTAR TANTO DESCASO COM A SEGURANCA COM A EDUCACAO DE QUEM SERA A CULPA ONDE ESTA A INTELIGENCIA A CAPACIDADE QUE NOSSOS POLITICOS DEMONSTRAM FACA VALER PELO MENOS OS NOSSOS VOTOS.

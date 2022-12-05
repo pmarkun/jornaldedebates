@@ -1,0 +1,14 @@
+---
+title: Nizan estava certo: Salvador é um favelão!
+date: 2010-01-23 21:15:59
+author: Gregoriana - A Boca Bendita
+debate: O jogo da política
+slug: nizan-estava-certo-salvador-e-um-favelao
+status: publish 
+type: post
+---
+
+Salvador é terra suja e bagunçada. As pessoas jogam lixo pela janela dos carros, urinam pelas ruas a céu aberto a qualquer hora do dia, falam alto, tombam em você e não pedem desculpas e dirigem igual a loucos em total desrespeito às regras de trânsito e às regras de controle da poluição sonora. Tudo em Salvador dá a impressão de que nada funciona. O tráfego é caótico. O povo só pensa em dançar o pagolixo, com letras poéticas do tipo "me dá a patinha" e "rala a tcheca no chão". A parte da cidade que se diz turística se resume à orla e adjacências e à Av. Paralela. O restante caracteriza-se por grandes bolsões de pobreza (Nordeste de Amaralina, Vale das Pedrinhas e Santa Cruz, Curuzu, São Caetano e Liberdade, Bairro da Paz, Mussurunga, Yolanda Pires e São Cristóvão), cartões de visita para quem chega via aérea, marítima ou terrestre. Predomina o crescimento desordenado, o descontrole da natalidade, o baixo nível de escolaridade, e muito axé e feriado o ano inteiro. E a violência tem aumentado. Os pontos turísticos se resumem ao decadente Pelourinho, entregue às drogas e à prostituição; ao Farol da Barra onde os trombadinhas estão de olho em sua câmera fotográfica e, se você é loiro de olhos azuis, é o alvo perfeito; à Igreja do Bonfim, símbolo do sincretismo (mas não pise no alguidar); e às praias, a maioria tem despejo do esgoto do Bahia Azul, que ninguém nunca viu funcionar porque o terrível odor característico do bairro do Costa Azul (que deveria se chamar Costa Marrom), é digno dos sulfatos que emanam de atividade vulcânica. 
+O povo é acomodado com tudo isso porque encontra o que gosta: sombra de coqueiro e água de coco fresca. Os axezeiros e pagodeiros também gostam porque enriquecem fácil em Salvador fabricando lixo sonoro às expensas de tolos que os escutam. E o governo também gosta! O falecido Toninho Malvadeza levou para a cova as benfeitorias que ainda se faziam na época do seu reinado. Hoje a cidade está entregue, degradada, abandonada, uma orla terrivelmente bela e desprezada, sem nenhum tipo de aproveitamento. Fica entregue noite e dia nas mãos das prostitutas e drogados. A capital da Bahia está entregue ao desgoverno! Para quê mexer para mudar esse quadro? O bom é mexer "quebrando" até o chão atrás do trio elétrico e o ano inteiro nas lavagens disso e daquilo, nos ensaios dos batuqueiros e nas ressacas e micaretas. Qual é a contribuição dessa cidadela para o Brasil? Salve-se Caetano e companhia LTDA, mas essa bahianada precisa acordar! Mexer os neurônios e mudar a cara e a fama dessa cidade que se espalha aos "quatro cantos" do mundo.
+
+Gregoriana de Matos, a Boca Bendita

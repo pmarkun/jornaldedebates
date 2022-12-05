@@ -1,0 +1,21 @@
+---
+title: Interrogatório à distância
+date: 2007-04-24 21:00:00
+author: dijalma.lacerda
+debate: O Judiciário é um poder intocável?
+slug: interrogatorio-a-distancia
+status: publish 
+type: post
+---
+
+  
+ Destoa de todo conteúdo deontológico do Direito a infeliz iniciativa de alguns magistrados criminais em realizar interrogatórios de acusados que estão presos, por meio de vídeo-conferência - internet - , valendo-se da frieza de um computador para transmissão de imagens e voz, tudo on-line. Remonta aos tempos bíblicos, aos primórdios, o Direito do réu comparecer pessoalmente diante de seu julgador, geralmente o rei, e com ele pessoalmente falar, sem qualquer interferência, expondo tudo o que entendesse necessário expor.   
+  
+O interrogatório é momento sagrado do réu; não pertence ao Juiz, ao Promotor, ao Advogado de Defesa, a ninguém; é, repita-se, momento do réu, tanto que ali poderá ele falar o que quiser, ou até calar-se - DEVE SER absolutamente livre !! Todo o Livro Velho da Bíblia traz esse espírito de profundo respeito ao acusado. O julgamento de Adão e Eva em que Deus fala com eles diretamente, face a face, a submissão de Noé, a expulsão de Hagar, o subjugamento de Abraão curvando-se às ordens de Deus para martírio de seu filho Isac, os Dez Mandamentos, a Sarça Ardente, Deus e Jó, etc. etc.. Já no Livro da "Boa Nova", o próprio Cristo compareceu pessoalmente diante de seus acusadores e julgadores. Anás, Caifás, Pilatos, Herodes. Foi perguntado, falou, respondeu. Quid Veris ?   
+  
+Diz-se até que neste momento sagrado pertencente unicamente ao réu, ocorre apriorístico julgamento recíproco, em que o Juiz avalia o réu sim, mas que o réu também avalia o Juiz, especialmente no que pertine a ele "servir" ou não para julgá-lo, podendo daí originar-se a chamada exceção de suspeição, em que o réu dirá que o Juiz não serve para julgar o seu caso porque é suspeito, e, é claro, as razões pelas quais chegou a tal conclusão. Nesse momento, o do interrogatório, - o mais sagrado do processo - o Juiz não deve avaliar somente o aspecto objetivo do ato, porém avaliará, - e deve necessariamente avaliar - todo o componencial subjetivo, levando em conta, sempre, sua impressão pessoal sobre o interrogado, para o que até os odores devem ser sopesados; também o andar do réu, o asseio, a maneira de se sentar (quando lhe é permitido sentar), seu timbre de voz, sua movimentação corporal e eventual gesticulação enquanto fala, a observação se tem sinais de tortura, se está corado ou pálido demonstrando assim boa ou má alimentação, a observação de que está ou não coagido cuidando para que ele fique absolutamente livre no seu momento sagrado, sem interferências, sem quaisquer terceiras pessoas que possam intimidá-lo, sem aparato policial, e l i v r e, sem algemas.   
+  
+O interrogatório deve ser momento de liberdade, em que o Réu deverá estar realmente livre para dizer o que quiser, o que evidentemente não se coaduna com um interrogatório frio na frente de uma câmera de vídeo, no próprio ambiente prisional como está acontecendo, jogando por terra o superlativo princípio da presunção de inocência. Além disso, há que se observar o caráter normativo do Direito Público in genere, inavendo em nosso Direito Processual Penal anterior previsão de interrogatório à distância, o que desvirtua o "due process of law", ou, na melhor expressão vernacular, o devido processo legal. Tamanha a importância desse contato pessoal entre Juiz e Réu no interrogatório, que existe toda uma jurisprudência no sentido de que baldados os ditames do artigo 149 do CPP (exame de insanidade mental), o que verdadeiramente valerá para impor a instauração ou não do incidente será a impressão pessoal do Juiz. Tamanha a importância que o Juiz poderá, segundo suas impressões, seu entendimento, colocar prontamente o réu em liberdade concedendo-lhe a liberdade provisória.   
+  
+Pensa-se, assim, que as forças representativas da classe jurídica deste País, e em especial a ORDEM DOS ADVOGADOS DO BRASIL , devem manifestar seu mais veemente repúdio a esta anomalia, envidando todos os esforços para que ela seja incontinente coibida, até porque fere a própria Constituição Federal no que diz respeito ao livre exercício da mais ampla defesa.   
+

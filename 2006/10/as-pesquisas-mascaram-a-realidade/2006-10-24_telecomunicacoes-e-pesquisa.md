@@ -1,0 +1,14 @@
+---
+title: telecomunicações e pesquisa
+date: 2006-10-24 21:00:00
+author: neide.rocha
+debate: As pesquisas mascaram a realidade?
+slug: telecomunicacoes-e-pesquisa
+status: publish 
+type: post
+---
+
+O feitiço contra o feiticeiro. O PSDB partido neo-liberal e progressita a favor do avanço foi quem mais fez pelas telecomunicações (Mario Covas) este mesmo avanço é quem revela verdades via pesquisas, graças à tecnologías podemos fazer uma boa pesquisa em curto espaço de tempo com aceitável margem de erro. O mesmo progresso esmaga salários acirra a competividade e no fim o Ser humano está provado que NÃO VIVE MELHOR (WWF diz que a terra tem 50 anos para entrar em pâne tomara que estejam errados). Se o Sr Geraldo Alckimin tiver de fato tão boas intenções deverá mudar de partido, já que o PSDB tem a "sombra" de FHC que com toda o seu doutorado não fez melhor que o torneiro mecânico não.As pesquisas podem ser distorcidas por um tempo, os fatos não. Tanto é que o próprio PT está apanhando. Lhes fizeram "morder uma ísca" atraídos por um material que sería um dossiê e cairam na armadilha de políticos profissionais de longa data...é vivendo e aprendendo o PT vai ter que aprender as malandragens com os velhos carcamanos e tomara que não se estrague e contamine mais por conta disso.
+Os menos favorecidos que não tem acceso a www que são os mais favorecidos pelo governo do PT e moéda de troca dos políticos de todos os tempos que usaram o "poder" do voto deles, os ignorantes, não terão problema nenhum em votar no Lula e muito menos os paulistas que trouceram a tôna para a vida política e pública a ninguem menos que Paulo Salim Maluf (o do "eu levo mas eu faço").Se quizerem derrotar o Lula, a oposição de fato terá que dar educação e acesso fácil a informação que não seja só da Globo não ou da mídia nacional, a população para ter senso crítico terá que ser alfabetizada ou "re-alfabetizada" para ter noção mais ou menos exata do que está acontecendo.
+Já que como se diz que os últimos serão os primeiros (não sei se os primeiros em ficar ou desaparecer...) Cuba nos seus avanzados conhecimentos de medicina é graças a Deus uns dos mais atrasados no que resta de tecnologías e por tanto segundo a WWF é o país que menos polúi...isso é progresso ou salvação?.Para o PSDB deve ser retrógrado um país como Cuba onde se estuda para salvar o corpo do Ser Humano e não o progresso material dele, é assim que pensam os EE.UU. os chineses capitalistas e agora um pouco menos os japoneses que estão se dando conta que não é muito bom negocio morrer no conforto da tecnología mas, morrer ao fim.
+Por último acredito que sem pesquisa não pode se ter muita noção de nada não por mais que ela possa ser um pouco mais ou menos mascarada os fatos dirão depois para mal ou para menos mal se estavam muito ou pouco mascaradas.

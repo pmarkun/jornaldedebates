@@ -1,0 +1,11 @@
+---
+title: Salário dos Deputados : Aumento Inaceitável 
+date: 2006-12-14 22:00:00
+author: getulio.aguiar
+debate: JD no Congresso
+slug: salario-dos-deputados-aumento-inaceitavel
+status: publish 
+type: post
+---
+
+O país apresentando resultados medíocres de crescimento anual da economia (menor que 02 dígitos) e os parlamentares ao inves de procurar fazer redução nas despesas, reativar a industria que está estagnada há anos, para gerar empregos estão brincando com o povo ! Isso demonstra que eles não estão preocupados com os problemas do país, do povo miserável e do futuro dessa nação ! Demonstrando total falta de conscientização e de responsabilidade quando não levaram em consideração a inflação acumulada de 2003 à 2006, de 27%. Entretanto, quando são analisadas as situações dos salarios dos aposentados, pessoal da ativa de diversas atividades, assim como salario mínimo, não há possibilidades para reajustes medíocres, gerando polêmicas intermináveis, até eles aprovarem % mínimos, exatamente ao contrario do que eles praticam em causa própria. Temos que tomar alguma providencia contra esse tipo de atitude por parte de nossos representantes, uma vez que quando os elegemos não foi com essa intenção. O voto absolutamente não lhes dá o direito de legislar em causa própria, mas apenas e tão somente em favor do Brasil. Esse tipo de atitude deliberando atos lesivos ao país evidencia a falta de carater e representatividade esperadas pelos eleitores. Se eles têm o direito a reajustamento salarial de 91%, porque não temos tambem o mesmo direito ? Regras tem que ser para todos, de forma justa e de acordo com a situação do país. Não dá mais para aceitar esse tipo de atitude. Temos que mudar o país, ou melhor, a conduta dos políticos que tomam esse tipo de atitude ! Tem que haver na CON STITUIÇÃO BRASILEIRA, regras claras quanto à maneira de agir e limitações para os parlamentares. Eles têm que saber que eles não podem tomar decisões que quizerem, mas as que forem boas para o país e para todos os cidadãos. Eles vivem falando que o país vai mal, que a previdência não tem dinheiro para pagar pensões, que a situação tende a se agravar. E aí então para melhorar a situação eles dão esse aumento para eles ? Eles acham que todos somos idiotas. Getulio Aguiar

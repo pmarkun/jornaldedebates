@@ -1,0 +1,11 @@
+---
+title: Por que a política me toca.
+date: 2006-10-20 21:00:00
+author: fernando.marquete
+debate: Quem deve ser o próximo presidente?
+slug: por-que-a-politica-me-toca
+status: publish 
+type: post
+---
+
+Eu sei que vão me criticar pacas por esse "artigo", mas estamos aí pra isso. Agora um amigo me disse no MSN: "eu não entendo porque esse negócio de política te toca tanto".Ele me questionou sobre isso porque estou desde as 8 horas da manhã em debates e discussões na Internet (e agora são quase 21h), escrevendo mensagens e artigos para tentar abrir os olhos das pessoas, ou pelo menos fazê-las enxergar o outro lado da moeda. Fiz um videozinho, que, eu sei! Não vai mudar muita coisa no resultado da eleição. Mas quero fazer a minha parte. Estou com dores nas costas, nos dedos de tanto escrever, dor de cabeça. (Essa é a parte que vão me malhar. "Tipo... Coitadinho!!!"). Pois é. Mas ele me fez essa pergunta. E eu parei pra pensar. Por que estou fazendo isso? Em vez de olhar para o meu umbigo e fazer as coisas da minha individualidade. Eu também tenho conhecimento de que muitas pessoas se preocupam tanto quanto eu, sendo PSDBistas, Petistas ou "qualqueroutropartidistas". Todos querem o melhor para o Brasil. Mas não existem donos da verdade. E é a discussão que leva à aproximação do que seria ideal. Eu tento convencer petistas de cá. Petistas tentam me convencer de lá. Deste "cabo de guerra" escapam, naturalmente, idéias boas de ambas as partes. Escapam dados, informações, estatísticas. Favoráveis ou desfavoráveis a um candidato ou outro. Mas sempre favoráveis ao eleitor, que precisa sobretudo de conhecimento para se decidir. Eu tento dar minha contribuição. Alguns gostam, outros detestam. Como os artigos que postei anteriormente e o vídeo que está no YouTube (http://www.youtube.com/watch?v=lD2efHbSpQ8 ). E continuo sempre a, incansavelmente, publicar meus argumentos e admiro os "adversários" que respeitosamente também publicam os seus. Por isso, então, ele me disse: "eu não entendo porque esse negócio de política te toca tanto". Na hora muitas coisas vieram à minha cabeça. Tipo, pela próxima geração, pelos contribuintes que têm seu dinheiro roubado, pela ética... Mas tudo o que consegui responder foi: "Cara... Eu quero ter orgulho do Brasil." Só isso.

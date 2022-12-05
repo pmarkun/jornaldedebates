@@ -1,0 +1,11 @@
+---
+title: Salários da Vergonha (ou dos sem vergonha?)
+date: 2006-12-16 22:00:00
+author: carlos.conceicao
+debate: Salários dos Parlamentares: como definir?
+slug: salarios-da-vergonha-ou-dos-sem-vergonha
+status: publish 
+type: post
+---
+
+Os salários dos parlamentares, sem dúvida, é  um caso de polícia. A indignação é grande pelo Brasil a fora, já está na  hora de fazermos uma revolução popular neste país para mostrarmos a estes cidadãos que  não estamos  omissos e  coniventes com os seus desmandos. É revoltante sabermos que ao apagar das luzes da atual legislatura, estes senhores que nos representam, advogaram em causa própria, aumentando absurdamente seus ganhos sem avaliar as conseqüências para o caixa do governo e o efeito cascata, que  causará o referido aumento. Será que não conhecem a realidade salarial da nossa sofrida população? Que o nosso salário mínimo é vergonhoso? Já imaginou se pudéssemos aumentar o mínimo em 91% sem depender de lei? Sem analisar o impacto que isso traria para a nossa economia? Parece que os nobres  parlamentares não realizaram nenhum estudo para "se darem" este aumento vergonhoso e  imoral. Precisamos agir com urgência, seja através da revolta popular nas ruas ( apitaço, panelaço, buzinaço,  caravanas pela moralidade ) ou usando meios legais através de  ações populares, ações jurídicas  lançando mão de dispositivos constitucionais etc.  Não podemos ficar de braços cruzados e nos calar diante de tal descalabro. Esse fato nos mostra ainda que estamos passando por um momento de desmando e desgoverno, o que é perigoso para o desenvolvimento e o crescimento do país no momento. Está  na hora de nossos políticos tomarem vergonha e pensarem mais no Brasil do que nos rendimentos que vão embolsar. Hoje o custo total aproximado  com um parlamentar (110 mil aproximadamente) daria para pagar ou contratar  mais ou menos 130 professores especialistas para educar e melhorar a consciência política dos brasileiros. Mas parece que isso eles não querem. Uma população esclarecida e politizada seria um pesadelo na vida destes senhores.  A meu ver,  nosso Brasil só será um país sério, justo e progressista  quanto o povo tiver vez e voz , tomar verdadeiramente o poder,  expulsando os parasitas que infestam o poder político em nossas casas legislativas, e olha,  não são poucos.

@@ -1,0 +1,149 @@
+---
+title: O que não deve ser dito.Não deve ser falado (ponto) Quando não se sabe. Se cala (ponto final e não há parágrafo)
+date: 2007-11-14 22:00:00
+author: nelson.valente
+debate: Quem fala o que quer ouve o que não quer?
+slug: o-que-nao-deve-ser-ditonao-deve-ser-falado-ponto-quando-nao-se-sabe-se-cala-ponto-final-e-nao-ha-paragrafo
+status: publish 
+type: post
+---
+
+(\*) Nelson Valente  
+
+Um dia é da caça, outro do caçador... (Diz o dito popular).  
+
+Leon Eliachar fantasiado de caçador e Jânio a caça.  
+
+- "Fui armado com nada menos de 37 telefones. Jânio não era encontrado em nenhum. Mas estava em todas as tevês: milagres a vídeo-teipes. Nunca seu tempo foi tão curto como nesta campanha. Quando nos encontramos de madrugada, chegou com hora e meia de atraso" - comenta Leon.  
+
+- "Desculpe ter chegado adiantado" - Leon justifica-se buscando uma resposta atravessada do controvertido político Jânio.  
+
+A conversa foi rápida: toma lá, dá cá.   
+
+LE: "O Sr. tem senso de humor?"  
+
+JQ: "Todos os homens supõem possuí-lo no mais alto grau e da melhor qualidade. Não faço exceção à regra. Devo reconhecer, entretanto, que um cigarro mofado me infelicita!"  
+
+LE: "Se eleito Presidente da República, não acha mais conveniente trocar a "vassoura" por um "aspirador de pó"?"  
+
+JQ: "Aspirador de pó falha, às vezes. Tem direito a curto-circuito. Carece de personalidade. É provido de um receptáculo de proporções diminutas. O aspirador de pó não passa de um demagogo da limpeza. Não cumpre o que promete e faz e promete demais. Prefiro mesmo a minha vassoura velha, mas provavelmente fiel."  
+
+LE: "Se o senhor ganhar as eleições, que bilhetinhos mandará aos candidatos derrotados?"  
+
+JQ: "Vou ganhar as eleições. Não enviarei bilhetes a ninguém. O que espero é não enfrentar a continência de recebê-los, após o pleito."  
+
+LE: "Já pensou em distribuir os seus imitadores na televisão, para fazerem a sua campanha por todo o Brasil?"  
+
+JQ: "Não. Temo que me aliciem, que me subtraiam o eleitorado, colocando-me, afinal, na situação inconfortável de precisar discutir com as minhas próprias caricaturas. Se não aprecio o espelho, pela imagem melancolicamente insatisfatória que me devolve, imagine as dificuldades com que vejo meus imitadores."  
+
+LE: "A "Voz do Brasil" devia ser patrocinada pela Petrobrás?"  
+
+JQ: "A Petrobrás é uma coisa séria. A "Voz do Brasil" parece-me enfadonha. Às vezes, mostra-se útil, mas é raro. Como conceber que um programa docemente estático receba o patrocínio da empresa que desejamos sempre mais dinâmica?"  
+
+LE: "Do jeito que as coisas vão, não acha que ganharemos com o suor do nosso rosto o pão nosso de cada dois dias?"  
+
+JQ: "Infelizmente, não divido com seu otimismo. Do jeito que as coisas vão, acabaremos por não ganhar qualquer pão, preservado o nosso direito de suar à vontade."  
+
+LE: " "Men insano in corpore SAM" é o lema da juventude brasileira?"  
+
+JQ: "Aqui, não participo do seu pessimismo, nem leio pela sua gramática latina. Acredito na juventude, particularmente na brasileira. Descresse dela, a minha atividade restaria sem sentido, objetivo, inane e estulta. Convido-o a não impor lemas ao futuro na expectativa de que ele se revele generoso, à hora de compor os nossos epitáfios."  
+
+LE: "Só ESSO dá ao seu carro o máximo?"  
+
+JQ: "Não entendi a pergunta. Pressinto-a sutil como o pró­prio interpelante. Resta-me pois, neste instante de perplexidade, o recurso à passagem de volta":   
+
+- "Só ISSO dá ao seu cargo o máximo?"  
+
+LE: "Qual a sua bebida predileta: cuba-libre?"  
+
+JQ: "Não gosto de bebidas doces, são traiçoeiras."  
+
+LE: "Leva muito tempo para despentear o seu cabelo?"  
+
+JQ: "Meu cabelo tem vida própria, economia própria, hábitos e caprichos que não discuto mais. Faz-me oposição intransigente, constante, comprometedora. Admite água e sabão. É, todavia, um rebelado contra o reacionarismo do pente, ao qual alude como a uma abominável força colonizadora."  
+
+LE: "Se eleito, colocará os pronomes nos seus devidos lugares?"  
+
+JQ: "Os pronomes não aguardam a minha eleição para que se coloquem nos seus lugares. Estão sempre neles. A boêmia dos verbos é que mutilam a boa ordem das frases. Há que lhes perdoar. Não se desgrudam da idéia de movimento."  
+
+LE: "De Jânio e de louco todos nós temos um pouco?"  
+
+JQ: "O prenome, tenho-o todo. De louco chamavam-me os que descriam dos programas que anunciei para a Prefeitura de São Paulo e para o Governo do Estado bandeirante. Cumpri os dois programas. Se duvidar, confira suas incertezas colhendo o depoimento do povo. Um pouco? Por que um pouco?"   
+
+LE: "Seu programa de governo será patrocinado?"   
+
+JQ: "Sim, e pelo povo brasileiro."   
+
+LE: "Por falar em Cuba: cada povo tem o açúcar que merece?"  
+
+JQ: "Não. Há os confinados ao açúcar amargo das rações insuficientes e há os que não dispõem de qualquer açúcar."  
+
+LE: "Opa, ia esquecendo: que acha da OPA?"  
+
+JQ: "Vou realizá-la."  
+
+LE: "Acha que a revolução de Cuba foi uma barbada?"  
+
+JQ: "Morreu tanta gente na revolução cubana, iluminada pela esperança de melhores dias para a Pátria a que todos tanto estremecem, que o movimento ainda hoje me emociona."  
+
+LE: "Dizem que o senhor é bom ator: será por isso que se interessa tanto pela classe teatral?"  
+
+JQ: "Se exprimo, persuasivamente, em tons de sinceridade, as idéias nas quais acredito e que almejo transmitir aos outros, aceito e agradeço que me inclua entre os bons atores. Interessa-me a classe teatral, pelas mesmas razões que me vinculam aos artistas, aos intelectuais e até ao repórter. Deixo a seu cargo, e não deixo muito, a pesquisa do motivo."   
+
+LE: "Se quem tem boca vai à Roma, quem tem bigode vai à Rússia?"  
+
+JQ: "Nem a boca leva à Roma, nem o bigode conduz à Rússia, pelo menos, recorri a um `Mig´".  
+
+LE: "O grupo do café anda querendo fazer média com o senhor?"  
+
+JQ: "Grupo, comigo, jamais funcionou. Quando estudante, saturei-me de médias. Como indivíduo e como político, não sei prescindir de café."  
+
+LE: "Mais vale um helicóptero na terra do que dois voando?"  
+
+JQ: "Sem dúvida."  
+
+LE: "O senhor tem esperança de chegar a JQ?"  
+
+JQ: "Já cheguei."  
+
+LE: "Qual será o seu slogan: 50 anos em 5 ou 5 anos em 60?"  
+
+JQ: "5 anos em 5, mais o pagamento dos atrasados."  
+
+LE: "Se Juscelino voltar em 65, o senhor voltará em 70?"  
+
+LE: "Se o que faltava ao Brasil era capital, depois de Brasília o que falta?"  
+
+JQ: "Falta Brasília, para não falar do resto."  
+
+LE: "Há diferença entre nacionalismo, entreguismo e janismo?"  
+
+JQ: "Há. Nacionalismo é profissão de fé. Entreguismo é traição à Pátria. Janismo é o fenômeno de transformação de um homem, obviamente inferior ao seu destino, no símbolo da renovação que o povo há de obter."  
+
+LE: "Os Presidentes da República gostam de se deixar fotografar ao lado de índios para provarem que o Brasil está de tanga?"   
+
+JQ: "E a prova, acaso, alguém a reclama?"  
+
+LE: "Não acharia mais justo trocar o `Ordem e Progresso´ da bandeira por `O índio é nosso´?"  
+
+JQ: "Não acho, não."   
+
+LE: "Acha que a indústria de automóvel é uma autopromoção?"  
+
+JQ: "Acho que é promoção alheia."   
+
+LE: "Com quantas metas se faz um bom Governo?"   
+
+JQ: "Metas não fazem um bom Governo. Um bom Governo realizará as que se proponha, ou as que os antecessores lhe deixem como acervo, como espólio, talvez como fadário?"  
+
+LE: "Para ser Presidente é preciso muita divisa?"   
+
+JQ: "Sou a demonstração de que basta ser reservista de terceira categoria."  
+
+LE: "O oval da ESSO é oval ou é aval?"  
+
+JQ: "Sugiro-lhe, amistosamente, uma consulta a qualquer psicanalista. O Brasil é tão mencionado no seu questionário, quanto a ESSO."  
+
+Bolas, ele podia dormir sem ESSA. O tiro saiu pela culatra. Era o dia da caça.  
+
+(\*) é jornalista

@@ -1,0 +1,31 @@
+---
+title: Estamos sendo observados
+date: 2007-02-04 22:00:00
+author: harry.grossman
+debate: Cultura Big Brother: é preciso eliminar o outro para vencer?
+slug: estamos-sendo-observados
+status: publish 
+type: post
+---
+
+Muito dinheiro envolvido, conteúdo discutível, um zoológico humano, nível questionável e dramas reais com personagens de verdade sobre absolutamente nada se revelaram ingredientes de sucesso.  O *reality show* é uma realidade na tv mundial e o "Big Brother" sua menina dos olhos. E nós continuamos a questionar, criticar o programa, quem o realiza, assiste e participa; quando o mais fácil seria apenas desligar o aparelho de tv ou simplesmente trocar de canal. O que será que tanto incomoda? Será que o nível do programa é tão ruim, quando temos Ratinho, Clodovil e toda a Rede TV exibindo aquela grade de programação de dar enjôo em hiena? Acho razoável a colocação dessa questão.  
+  
+Gostaria de deixar claro e tentar não parecer hipócrita, quando critico o programa, que minha história em relação ao "BBB" é a seguinte: fui chamado às pressas para substituir um participante desistente, e a chance de ganhar uma bolada, sem "trabalhar", me seduziu. Lá fui eu. E não vem ao caso aqui comentar o contrato que assinei, as regras estabelecidas pela produção e nem tampouco revelar segredos ou falcatruas. Fiz o que fiz, participei por livre e espontânea vontade, apesar de ter me sentido prejudicado pela edição do programa. Mas isto faz parte do jogo e aceito sem choramingar. Foi bom pra mim. Sem dúvida uma experiência positiva na vida e, apesar de  não conseguir me assistir, levo quase tudo numa boa. Onde estive sempre fui bem tratado e é isso que importa. Já paguei minha conta e agora estou no zero a zero.  
+  
+Estava comentando com meu amigo Emilio Zagaia (o mergulhador do "BBB 3") que esta é uma faca de três gumes: dois contra e um a favor. Mas na hora de entrar no jogo só vemos o lado a nosso favor. Posso dizer que conhecia o programa, mas não é o meu tipo de *reality* favorito. Não assisti às primeiras duas edições e nem as outras depois da minha. Não assisto novelas e os enlatados americanos que eu gosto podem ser vistos fora da cronologia certa, que pouco altera no resultado ("Seinfeld", "Simpsons", "Arquivo X").  Acho que o "BBB" poderia ser mais interessante, caso a produção quisesse explorar o lado bom de cada participante. Mas o que dá maior audiência é a combinação de sexo, bebedeiras, intrigas e situações que possam ser usadas pela edição do programa. A idéia é mesmo mexer emocionalmente com o público, que passa a se apaixonar ou odiar os "atores" deste drama real. É triste. O programa pouco acrescenta, às vezes é chato ao nível de não conseguir se ver por muito tempo. Mas caso a tv esteja ligada, "BBB" no ar e você der mole, ele fisga você.  
+  
+Meu velho tem *pay-per-view* desde a primeira edição e se amarra. Já não é novidade, é anual e não há sinais de que vão parar por aí; afinal já estão no sétimo. Novela é bom? Enriquece o público culturalmente? Muito pouco, na minha opinião, mas sem dúvida é um aspecto cultural do nosso povo. Certa vez recordo ter lido um artigo que mencionava o brasileiro como um dos únicos povos a fazer seu horário de acordo com a programação da tv. Nós somos quem somos e temos que evoluir a partir daí. Todos sabemos que a comida do *McDonald's* não faz bem para as crianças, mas continuamos a levá-las para comer lá. Por ser mais fácil, conveniente ou simplesmente por que elas querem. E assim é a vida. Quantos falam mal de *fast-food*, mas comem mesmo assim. O "BBB" é um desses casos. É um *fast-food* da televisão. Nunca foi a minha praia. Particularmente aprecio outros shows.  
+  
+Atualmente gosto muito de um chamado "American Inventor", e do infame "Hell's Kitchen". Assisto do começo ao fim, mesmo sendo viciado em trocar de canal de dois em dois minutos. A grande questão, que acredito ser a razão de o programa fazer tanto sucesso, é: por que a vida normal de pessoas comuns dá tanta audiência?   
+  
+A televisão fascina a todos e o nosso povo não é formado por pessoas que escolhem o filme pelo diretor. Não primamos pela leitura, nosso número de livrarias é pequeno se comparado com países desenvolvidos com a mesma população, ou países de menor porte do nosso continente. E principalmente pelo fato de sermos mestres em uma ciência a qual denomino "Zoutropia" que é a ciência da vida dos outros.
+
+
+Ultimamente tivemos de nos acostumar a falar com reservas sobre o que temos, quanto ganhamos, que carro dirigimos, ou com quem estamos saindo. Isso porque as pessoas se preocupam demais em competir. Se preocupam demais com a vida dos outros e assim podem esquecer das suas e olharem menos nos seus espelhos. Se tem de menos é melhor não contar para não atrapalhar a sua imagem. Se tem demais é melhor não espalhar, pois pode atrair inveja, recalque ou assaltos. Então nada melhor que observar a vida dos outros, falar deles, espiá-los com exclusividade e até mesmo eliminá-los pelas costas chamando-os de falsos. Tudo isto somente por três parcelas de R$ 24,95. Que tal?!
+
+
+Acho que está na hora de percebermos que o mundo caminha em tal direção. Estamos sendo observados em todos os lugares e ponto final. George Orwell estava correto, à frente de seu tempo, no seu livro "1984",  escrito na década de 1950, e que certamente ajudou o holandês da Endemol a inventar o programa. Estamos sendo observados nos elevadores, nas salas de espera, nos túneis e avenidas, nos restaurantes e, nunca se sabe, até nos banheiros. Observar faz parte da vida. Existem estudos da física moderna que ressalta o poder do observador (vide o documentário "Quem somos?? De onde viemos"). Claro que não no caso do "BBB". Mas observar é bom, faz parte do ser humano. Há apenas aqueles que não gostam de admitir. Fofoca faz parte da vida comandada pela mídia em um mundo onde criticar é bem mais fácil que realizar. Temos que empenhar-nos em fazer deste um mundo com diferentes critérios. Outros objetivos, novos gols a serem atingidos. Assim, um programa como este estaria fadado ao insucesso.  
+  
+Com todo o respeito acho que a crítica não vai para quem faz o programa; e sim a nós por fazermos dele um grande sucesso.
+
+

@@ -1,0 +1,15 @@
+---
+title: Ou vai ou racha... ou rebenta a tampa da caixa.
+date: 2006-10-30 21:00:00
+author: roberto.silveira
+debate: O segundo mandato está sendo melhor que o primeiro?
+slug: ou-vai-ou-racha-ou-rebenta-a-tampa-da-caixa
+status: publish 
+type: post
+---
+
+Agora está tudo resolvido. Podemos esquecer em parte as falas que cansamos de ouvir nesses dias: "deixa o homem trabalhar"; "nem mesmo o presidente da república pode saber de tudo"; "seja quem for que tiver feito alguma coisa errada no meu governo, se for provado, tem que pagar"; "nunca nesse país..."; "o dado concreto é que..."; "Lula de novo, com a força do povo" OU "o Brasil pode mais"; "ele acha que está bom, crescer só dois por cento. Eu não acho"; "a Argentina cresceu mais, o Uruguai cresceu mais, o Paraguai cresceu mais, o Chile cresceu mais..."; "cadê o dinheiro?"; "por um Brasil decente, Geraldo Presidente". E assim repetidamente, ad nauseam.
+ Agora está tudo resolvido? Conversa. Aqui estamos nós, todos pimpões, os que votaram em Lula eufóricos, como se tivessem vencido pessoalmente a batalha contra o dragão da direita, o demônio da Opus Dei, o monstro das privatizações, o inimigo dos pobres. Os que votaram em Alckmin raivosos, como se tivessem visto o ignorante vencer, um bêbado na presidência, o país estraçalhado, a chance de fugir da desgraça jogada aos porcos...
+ Tudo ilusão. Na verdade, nossa vidinha vai em frente, a fila anda, a gente tem que continuar trabalhando para pagar as contas no final do mês, nossos filhos vão continuar dando dores de cabeça, o chefe continuará chato, o carro continuará enguiçando na hora mais impróprio, o trânsito continuará empacando feito burro manhoso. Em compensação, continuaremos beijando nossas namoradas (os), mulheres (homens) e amantes (!). O pôr-do-sol continuará lindo, pescar ainda vai emocionar, nossos filhos continuarão nos dando alegrias, flores continuarão belas e o dia vai acabar em noite de descanso e paz.
+ Agora está tudo resolvido... em parte. Pelo menos, já temos uma definição sobre quem será o presidente nos próximos quatro anos. Tenho visto nesse site de debates manifestações as mais diversas contra e a favor do presidente eleito. Uma coisa essas manifestações tem em comum: todas elas emanam supostamente de gente que ama o Brasil, que quer ver este país forte, com educação de qualidade, economia crescendo, padrão de vida melhorando, a pobreza diminuindo, a segurança como algo que não parece apenas esperança, mas confirme ser uma realidade. 
+ Então está tudo resolvido. Vamos unir as forças e procurar cooperar para que tudo dê certo. Não faz sentido avacalhar as coisas apenas porque votamos no candidato que venceu, pensando que quem ganha pode fazer o que quiser. Mas também não faz sentido buscar atrapalhar e esperar apenas pelo pior, ou pior: torcer pelo pior, apenas porque votamos no candidato derrotado. As eleições terminaram. Fato consumado. Agora, ou vai ou racha... ou rebenta a tampa da caixa. Lembrem-se: não depende apenas de Lula, como não dependeria apenas de Alkcmin. Depende de todos nós.

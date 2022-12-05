@@ -1,0 +1,19 @@
+---
+title: O povo brasileiro x problemas brasileiros: Cotas para quê? Ou para quem?
+date: 2007-07-14 21:00:00
+author: eva.silva
+debate: Cotas para negros nas universidades: justiça ou segregação? 
+slug: o-povo-brasileiro-x-problemas-brasileiros-cotas-para-que-ou-para-quem
+status: publish 
+type: post
+---
+
+O povo brasileiro recebeu vasta "colaboração" e, portanto, forte influência de três povos de culturas diferentes: do europeu, do africano e dos índios que já estavam aqui antes da "descoberta" do Brasil. No entanto, esses nossos colaboradores foram se instalando e sendo instalados em diversas partes do país, de acordo com o que convinha na época, ou seja, onde estavam as cortes, estavam também os nobres europeus e seus respectivos escravos; onde habitavam os índios, estavam presentes os jesuítas com a missão de catequizar os "desalmados", e não se pode deixar de comentar, que eram considerados um pouco mais gente do que os pobres escravos que aqui chegavam. Já os escravos libertos, os índios catequizados e alguns poucos nobres formaram as primeiras províncias do país. Daí começou a povoação brasileira: com belas mulatas à vista e "à disposição" os nobres não resistiram e deram também sua contribuição nessa "mistureba", assim também como alguns padres jesuítas, também "coitados" tantas belas índias, puras e nuas, eles também deram suas voltinhas. Mas o povo negro e o povo indígena uniram-se, dando o retoque final na salada de belas cores e formas bem brasileiras, e que, diga-se de passagem, não existem em nenhum lugar do planeta misturas tão perfeitas.  
+
+Após sua "independência" o Brasil viveu -e ainda vive de alguma forma- sob domínio ideológico norte-americano, devido os EUA serem a grande potência mundial e por isso a "célula máter" a ser respeitada e copiada para o bem da humanidade. Nos EUA a história é diferente, até pouco tempo, negros e brancos viviam em pé de guerra, com limitações de parte à parte com forte intolerância. Hoje, eles querem se comportar como "multirraciais e irmãos". E, apesar de todo samba no pé - criado pelo povo da mistura mais escura e inspirado no batuque dos negros - o preconceito no Brasil se deu de forma diferente, segundo Oracy Nogueira (1950): o preconceito é de pele - quanto mais escura, maior o preconceito; já nos EUA o preconceito é de origem.  
+
+Porém, faz pouco tempo também, que uma parcela dos pesquisadores brasileiros e alguns não-brasileiros e parte do Movimento Negro brasileiro, inspirados no ideal norte-americano de "cada macaco no seu galho", passou a inverter as concepções e, a meu ver, também a confundir, pois: A igualdade nunca se dará partindo de divisão alguma. E também, não é prejudicando uns em prol de outros que vamos igualar qualidades cognitivas. Como disse incansavelmente Cristóvão Buarque (2006): "tudo perpassa pela educação".  
+
+O problema do racismo que existe no país, será resolvido se o povo brasileiro entender sua formação, conhecer sua história, aprender a valorizar suas raízes e sua cultura, não é necessário repetir o erro das turmas multisseriadas, que com o intuito de adiantar os atrasados e correr atrás do prejuízo, só comprometeu o trabalho dos professores e o aprendizado dos alunos. O mesmo risco se dará em relação aos cotistas, pois acelerar o processo de qualquer maneira significa continuar num mesmo erro.  
+
+As políticas de inclusão à custo zero (Maggie, 2001) , causam discussões que servirão apenas para desviar as antigas reivindicações em favor da melhoria da educação pública, em melhoria da saúde pública... Pois, que o grande entrave brasileiro está na educação, agindo assim, só adiaremos ainda mais a possibilidade de solucionarmos e darmos um basta em nosso atraso educacional; resolvido a educação, todos os outros problemas serão resolvidos. E não pode ser vista como utópica a melhoria educacional no país, isso é possível! ?

@@ -1,0 +1,11 @@
+---
+title: Aumento absurdo e vergonha na cara
+date: 2006-12-17 22:00:00
+author: carlos.neto
+debate: Salários dos Parlamentares: como definir?
+slug: aumento-absurdo-e-vergonha-na-cara
+status: publish 
+type: post
+---
+
+Nosso povo tem o costume de jogar lama onde já existe bastante. O povão fica com raiva porquê dá duro, ganha pouco e sustenta os políticos que se dão bem. Mas será que a raiva é porque o mundo está torto ou porque o sujeito está do lado errado do balcão? A grande maioria reclama enquanto está mal e fica quietinho quando começa a se dar bem, principalmente se for de forma ilícita. Há muita raiva e pouca generosidade, daí a generalização "todo político é safado". Menos do que generosidade, só inteligência. Na verdade, somos obrigados a aceitar a generalização na medida em que as exceções à regra são muito minoritárias (Gabeira, Heloísa Helena, Denise Frossard, Jefferson Peres e alguns outros gatos pingados). Tá bom, político não presta mesmo. Mas quem os elege? Será que só a ignorância do povo explica a recorrência de corruptos se reelegendo? Povo é capaz de votar no sujeito que dá camiseta, faz showmício e é assessorado por marqueteiro, aquele especialista em tirar proveito da ignorância do próximo. Esta bobeira popular generalizada é um dos fatores, sem dúvida, mas acredito também na existência de mau-caratismo explícito, igual ou pior que o dos políticos. É que o sujeito é capaz de votar no candidato que promete asfaltar sua rua, e dane-se o resto. É capaz também de votar no parente do parente do parente, ou no vizinho boa praça. Não é muito diferente do favelado que protege o traficante que dá churrasco para a comunidade. Há os desonestos políticos cujo projeto é apenas se dar bem. Há os políticos desonestos, menos medíocres, que têm projetos, pretensões políticas e vocação para o ofício, mas colocam seu interesse pessoal em primeiro lugar. Estes segundos, embora tão criminosos quanto os primeiros, pelo menos produzem alguma coisa e possuem impulsos que vão além do "primeiro o meu". Povo é boçal, não discerne coisa alguma, faz menos ainda para mudar nossa realidade e ainda se compraz em compensar sua frustração xingando os políticos. É por isso que eu digo: político não presta mas povo é muito pior!

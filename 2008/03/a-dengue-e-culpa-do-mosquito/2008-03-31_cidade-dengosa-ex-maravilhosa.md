@@ -1,0 +1,11 @@
+---
+title: Cidade Dengosa ex Maravilhosa
+date: 2008-03-31 21:00:00
+author: antonio.barros
+debate: A dengue é culpa do mosquito?
+slug: cidade-dengosa-ex-maravilhosa
+status: publish 
+type: post
+---
+
+Conheci o Rio onde se podia andar tranquilamente até altas horas, pelo centro velho, largo da Carioca, Praça 15, Cinelândia, Copacabana, Leblon e por aí vai. uma cidade relativamente limpa e as pessoas ainda civilizadas, mas isso é um passado que cada vez mais vai ficando esquecido, como um pesadelo vejo diariamente na mídia a lenta e inexorável destruição , a favelização organizada que se tornou a marca registrada nessas ultimas 4 décadas de um ex bela cidade.Agora tomada por quadrilhas, mosquitos, corrupção, sujeira, uma mídia mentirosa aquela do BBB, que só mostra a zona sul e os hotéis de luxo, e novelas repetitivas,  como um povo outrora orgulhoso,  pode regredir  a níveis de  insalubridade social e  sanitária ao Século 19.Políticos com idéias e ideais do século passado, como papagaios repetindo a verborragia cansativa do empurra empurra dos problemas e defeitos nunca resolvidos e só preocupados com seus interesses.Essa epidemia que nesse dia de hoje está atingindo centenas de milhares de pessoas pode tornar-se um das mais mortais só comparável a febre amarela no inicio do Sec 20, talvez tenham que ressucitar  Oswaldo Cruz para ensinar a debelar essa crise sanitaria, aos inconpetentes  politicos e autoridades que só sabem acusar-se mutuamente, enquanto nosso Guia Lula da Silva ouve Zeca Pagodinho e assiste o JN tecendo loas  a popularidade cada vez mais crescente de nosso Lider Supremo.Parecemos estar na Coreia do Norte tropical.Estamos bem servidos em todas as esferas de PoderTodas as instituições ditas fundamentais estão fazendo água, por pura falta de rumo e excesso de politicagem e falta de inteligencia e sentido prático, fazem-se leis para serem burladas, o Judiciario atopetado de processos que os "pobres"  juízes  não tem tempo nem para irem no banheiro, o Sistema de Saúde quebrado literalmente, educação que forma crianças semi-analfabetas que serão os futuros Universitários Sociais. Tudo pelo Social...Belo Lema.Adeus Brasil bons pesadelos e má Saúde e Dengue Para Todos.

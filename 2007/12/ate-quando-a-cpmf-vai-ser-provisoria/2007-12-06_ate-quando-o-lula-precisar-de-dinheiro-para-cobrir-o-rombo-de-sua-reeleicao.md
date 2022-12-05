@@ -1,0 +1,11 @@
+---
+title: Até quando o LULA precisar de dinheiro para cobrir o rombo de sua reeleição !
+date: 2007-12-06 22:00:00
+author: carlos.ferreira4
+debate: Até quando a CPMF vai ser provisória?
+slug: ate-quando-o-lula-precisar-de-dinheiro-para-cobrir-o-rombo-de-sua-reeleicao
+status: publish 
+type: post
+---
+
+Este absurdo de imposto será cobrado até que os Senhores senadores, deputados,ministros e membros do governo insistirem neste afano juridicamente legal por hora. Basta fazer uma administração decente, parar com a contratação absurda de funcionarios publicos. A começar pelos seus assessores particulares. Dobrou a quantidade e até foram criadas novas nomenclaturas profissionais para cargos criados para o gabinete presidencial.As nomeações , cargos e salarios foram publicadas no diario oficial. Tá lá ! nao estou inventando nada, Tá na hora deste governo criar vergonha na cara e fazer algo. Más algo para o povo brasileiro. Pois branco, amarelo,negro,mestiço, pobre, rico ou medio somos todos brasileiros. E o que este governo fez até agora se não gastar e gastar.Mostre pelo menos um projeto deste governo. Um só. Que não me venha com este Bolsa Familia, pois este e antigo, ele só juntou os do governo anterior acrescentou mais um pouco de dinheiro e mudou o nome para Bolsa Familia. Estamos cansados de ouvir abobrinhas, mentiras e agora ameaças. Será que temos um presidente da Republica ou um Presidente de Sindicato ! O Lula continua o mesmo, Presidente de um Sindicato, sempre fazendo acordos.Viajando sempre, para cima e para baixo com o dinheiro alheio, o dinheiro dos verdadeiros trabalhadores.Queria ver se o trabalhador por vontade propria dar um dia de seu trabalho ao seu sindicato. Eles não teriam como fazer passeatas, usar carro de som para fazer barulho no meio da rua, falar um monte de bobagens e ainda dizem ser a para o bem dos trabalhadores.Se isso acaba-se eu queria ver presidente de sindicato andar de passagem executiva, como poderiam fazer campanha para deputados, senadores, prefeitos e presidentes. ! E agora ainda temos que ouvir nos noticiarios e toda a imprenssa que não vai ter dinheiro para a Saude se cortar a CPMF. Presidente LULA pare de gastar a toa, faça alguma coisa, chega de discurso politico que não leva a nada. Estamos de Saco Cheio.

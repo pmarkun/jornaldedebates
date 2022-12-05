@@ -1,0 +1,35 @@
+---
+title: Buraco Gate - Nem é preciso laudo
+date: 2007-01-29 22:00:00
+author: marcia.pereira2
+debate: Cratera do Metrô: as empreiteiras são negligentes?
+slug: buraco-gate-nem-e-preciso-laudo
+status: publish 
+type: post
+---
+
+Depois da poeira baixar e de se dissipar as emoções arrebatadas - que sempre afloram diante do inimaginável, do horror e da vulnerabilidade -,o que começa a aparecer é sempre a razão. As pessoas começam a racionalizar em cima dos acontecimentos e suas razões - já que as causas estão na cara. E é isso que está acontecendo com o desastre/acidente/fatalidade/descaso da linha 4 do Metrô de São Paulo.  
+  
+Quem vive e trabalha ao redor da história viva, e mesmo quem está bem longe, começa a pensar sobre o porquê? E no Brasil, onde os porquês raramente envolvem motivações políticas, religiosas ou econômicas - até porque a buraco aqui é mais embaixo -, o que pega é, basicamente, o social.  
+  
+E os atarefados, gabaritados e excelentíssimos técnicos e profissionais do IPT (Instituto de Pesquisas Tecnológicas) nem precisam se dar ao trabalho de consumirem suas preciosas agendas lançando cronogramas esquematizados do superlaudo, que estão elaborando sobre os responsáveis pelo acontecido, ou mesmo o próprio. Se eles, aliás, freqüentassem mais o lugar saberiam o que aconteceu e acontece naquele fatídico quadrilátero, que tem a rua Capri como o principal endereço.  
+  
+Laudo pra quê? Se a gente, que passa por ali todos os dias - ou porque mora ou sobrevive nas e das imediações -, sabe exatamente o que aconteceu e o que está acontecendo? E que o superlaudo não vai apontar: despreparo e descaso.  
+  
+É isso mesmo. Sim, eu sei que as maiores empresas de engenharia, que constroem as maiores obras deste país, estão envolvidas neste empreendimento - que sim, eu também sei que é imprescindível à cidade (por isso mesmo, deveriam ter mais respeito e cuidado com ela, não?).  
+  
+Mas acontece que os donos e os principais executivos dessas construtoras e empresas não vão utilizar, não vão usufruir da obra - se bem que poderiam, pelo menos os da Odebrecht, já que a sede da empresa é bem próxima àestação que desabou... Eles nunca vão dispor de seus (caros) bólidos ou bem-dotados helicópteros para diminuir a poluição e o tráfego e pegar o metrô para ir ao trabalho - e eu sugiro que nem os reles mortais o façam.  
+  
+Pelo menos não na linha 4, se prezam sua vida e o da sua família.É por isso que vemos o despreparo e o descaso imperando na construção desta importante e necessária obra.  
+  
+E eu vou exemplificar com um caso que aconteceu na rua Sumidouro, vizinha ao desastre, dias atrás. O trânsito corria nervoso, como todos os dias da semana na maior metrópole do país, e, de repente, uma carreta gigantesca,na rua Sumidouro, a um quarteirão da Marginal Pinheiros começou a manobrar para entrar na rua Gilberto Sabino. O trânsito não foi interrompido por nenhum marronzinho da CET - aliás, depois que as câmeras e helicópteros das TVs se foram, eles também pegaram o caminho de casa - e please, advogados e assessores prontos a identificarem uma brecha para ações legais, eu não estou sendo literal!Não, no lugar dos marronzinhos havia uma senhorinha vestida de um marrom sujo, longe do convencional marrom mais imponente dos afamados funcionários da CET (nada contra as senhorinhas, mas será que o povo da Linha Amarela já ouviu falar em simbologia? Em Décio Pignatari? Vai, em Dan Brown e Código Da Vinci??!!). Uma só delas, na calçada, fazia sinal para o trânsito parar. Bom, com certeza, não é uma mulher que dirige. Quem dirige sabe que a atenção do motorista deve estar, primeiramente, na pista - criticam tanto as mulheres que se distraem com as vitrines... - e não nas calçadas - que eu saiba, ainda não inventaram motoristas biônicos, capazes de ver (e bem e com atenção) em todas as direções e ainda dirigirperfeitamente dentro dos padrões.Bom, o inevitável aconteceu. O trânsito parou, mas bem próximo à gigantesca carreta - que deveria estar ali para transportar algum pedaço daquele imenso guindaste balançante -, o que a impediu de fazer toda a manobra necessária para chegar ao seu destino. O caos se formou.Motoristas, distantes do acontecido, enfurecidos buzinavam. Outros, perplexos, nem se mexiam. Uma, desesperada porque a carreta, sem a menor cerimônia e consideração, subia com suas rodas agigantadas em seu capô, discutia com as senhorinhas (que traziam no peito o nome gritante da tragédia: "Linha 4"):  
+  
+"Por que a senhora não parou o trânsito devidamente, como faz o pessoal da CET (ou da polícia) quando quer multar? Tipo no meio da rua, com o apito estridente exigindo a parada imediata? Aliás, cadê os marronzinhos que não estão aqui para organizar esta bagunça? Só interessa quando o objetivo é a multa??"  
+  
+E na primeira menção de bronca da tal senhorinha representante da "Linha 4", a motorista bradou (e com razão): "Minha senhora, vocês já causaram muito transtorno e tristeza a esta cidade. Parece que vocês são experts mesmo é nisso. Em causar tumulto e desgraça. Acho que está na hora de dar um basta!"Pois é. Chega desta brincadeira de furar a terra irresponsavelmente, com descaso e com o visível despreparo (este episódio da carreta explica bem este despreparo), para ver se ela é mole ou dura, ou se o buraco vai dar mesmo do outro lado do rio. Chega de mangar com a gente. A gente que vai usufruir da obra, a gente que é pobrinha, que num tem Jaguar na garagem,mas que paga o salário do seu prefeito, do seu governador e a verba que vai para "o consórcio da Linha Amarela".  
+  
+E por que não perguntam a quem mora e freqüenta a região sobre o que está acontecendo? Ah, porque o cidadão comum talvez não tenha nenhum título acadêmico ou nenhuma expertise para embasar seus argumentos... Também nãoajudam em nada a alavancar a audiência. Só se morrem soterrados ou choram (e muito. Pouco não interessa) por quem morreu. Os técnicos do IPT, as autoridades, as construtoras e a mídia se esqueceram de que os cidadãos comuns têm o que é mais precioso: eles são as testemunhas oculares de tudo (foi-se o tempo no qual essa era a principal fonte do jornalismo sério); eles têm também a experiência, a vivência e a sensibilidade, que muitos diplomados se esquecem quando recolhem o canudo na suntuosa e teatral cerimônia de colação de grau.  
+  
+Hello!!!!! É o que os técnicos do IPT, os engenheiros responsáveis do superconsórcio da Linha Amarela, os executivos e donos das empresas envolvidas e principalmente os comandantes políticos - que só estão no poder porque a gente quis, porque a gente os escolheu para nos representar em todas as questões públicas (e este desastre, que deveria ser só a construção de uma extensão do metrô paulistano, é uma questão pública e nacional, porque o que acontece em São Paulo, a maior, mais rica e mais populosa cidade do Brasil, repercute em todo o país e em todo o mundo) - estão precisando ouvir.  
+  
+Hello, fellas! Para ficar mais claro, porque parece que os "elois" se esqueceram de que a língua deles e dos "morlocks" é o português!

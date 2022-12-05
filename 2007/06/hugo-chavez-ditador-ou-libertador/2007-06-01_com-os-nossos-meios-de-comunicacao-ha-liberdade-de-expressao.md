@@ -1,0 +1,13 @@
+---
+title: Com os nossos meios de comunicação há liberdade de expressão?
+date: 2007-06-01 21:00:00
+author: luis.kerber
+debate: Hugo Chávez: ditador ou libertador?
+slug: com-os-nossos-meios-de-comunicacao-ha-liberdade-de-expressao
+status: publish 
+type: post
+---
+
+Os papagaios da Rede Globo, "as vozes do dono" estão tagarelando furiosamente contra Hugo Chávez, pois parece que o presidente venezuelano conseguiu muito apoio no Brasil, inclusive o meu, principalmente depois que ele mandou fechar a golpista, a cínica e sensacionalista RCTV (que tem muitas semelhanças com a Rede Globo). Neste caso, das comunicações,o presidente Hugo Chávez é um libertador sim, pois a sua atitude corajosa de fechar uma emissora que achava ser dona de concessão pública, vem trazer à tona a questão da renovação ou não de uma concessão de serviço público aqui no Brasil, onde os meios de comunicação (Rede Globo, Rede Bandeirantes, SBT, Record, RTV! e outras) se acham capitães donatários e proprietários vitalício do ar. Além disto estes donatários se acham no direito de serem donos absolutos da verdade, o que eles acham que é certo passa a ser correto, o que eles acham errado passa a ser sinômino de atraso. Para eles é certo fazer campanhas através de seus jornais noticiosos contra os direitos trabalhistas e entrevistarem somente os especialistas que são favoráveis à quebra dos direitos sociais. Para estes donatários, verdadeiros latifundiários do ar, protestar contra um decreto autoritário que acaba com a autonomia das universidades públicas de São Paulo é um ato de vagabundos e desocupados, que nem sabem porque protestam, estes são taxados de invasores do espaço público. A verdade passa a ser o que a Golpista Rede Globo diz ser verdade, a mentira se torna o que a Rede Globo não gosta. Desta forma, os golpistas que estão por trás da Rede Globo usam até mesmo das suas novelas para impor a sua opinião conservadora e anti-trabalhista, assim os personagens criticam descaradamente os "privilégios" dos trabalhadores que tem carteira de trabalho assinada, pois a maioria não tem nenhum direito trabalhista enquanto uns poucos privilegiados tem os seus privilégios garantidos pela carteira de trabalho assinada.   
+
+Mas que liberdade é essa que permite meias-verdades, que permite uma única visão sobre determinado fato? Essa liberdade é a que a Globo determina. Se a RCTV daqui, a Rede Globo é assim, imagina a Rede Globo da Venezuela como é, muito mais autoritária, cínica e anti-democrática, já que não ouve e não dá espaço para opiniões divergentes. Hugo Chávez, você está certíssimo nesta questão...e em muitas outras também, apesar do seu passado.

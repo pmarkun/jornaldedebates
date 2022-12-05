@@ -1,0 +1,21 @@
+---
+title: Bin Laden continua sendo uma ameaça?
+date: 2007-09-11 21:00:00
+author: celio.lasmar
+debate: Bin Laden continua sendo uma ameaça?
+slug: bin-laden-continua-sendo-uma-ameaca
+status: publish 
+type: post
+---
+
+Bin Laden continuará, até depois de morto sendo ainda por algum tempo uma ameaça. Não só aos EUA, como a todos os seus aliados que fizeram parte da chamada coalizão que invadiu o Afeganistão e o Iraque.  
+Existe uma cultura de ódio implementada por certa parcela dos chefes supremos da religião islâmica - totalmente radicais - contra os EUA e seus aliados, pois se criou a cultura de que a miséria de seu povo se deve a ação nefasta de Israel e dos EUA seu aliado, e não de ineficiências de seu próprio sistema político, e de diferenças algumas até de ordem secular, e cuja solução a meu ver não está na força bruta, mas no entendimento em busca de objetivos aceitáveis pelas partes.  
+Portanto utilizando-se de slogans anti-imperialismo norte americano insuflam uma parcela de suas populações, este processo inicialmente restrito a manifestações públicas até mesmo sem expressão ganharam força com o passar dos anos, e se tornaram uma faca de dois gumes, já que saíram do controle tendo que inclusive de ser acatados por governantes de alguns países islâmicos, sob pena de caírem em desgraça diante de seus chefes religiosos e de, portanto perderem o poder administrativo de suas nações, sendo o caso mais notório o de Sadan Russein que abertamente se dispôs a pratica velada de ameaças aos EUA publicamente em toda a imprensa e meios de comunicação de que podia dispor a sua época.  
+O terrorismo não é um processo novo de luta na humanidade, sempre foi usado por praticamente todos os povos na história da humanidade, de uma forma ou de outra, mas com inúmeras finalidades, inclusive administrado pelas religiões e não só pelo Estado, mas na maioria das vezes por ambos.  
+O terrorismo moderno do qual Bin Laden é apenas um dos mentores, pois existem também em outras nações movimentos políticos que fazem uso do terror para pressionar governos, e buscar sucesso em suas empreitadas e reivindicações, está agora a dispor de inúmeras novas aramas para atingir seus intentos, inclusive aquela que se utiliza do ódio de membros de suas sociedades os quais são induzidos a tornarem-se mártires detonando seus próprios corpos em locais públicos, tendo tido seu maior momento em 11/09/2001 com o ataque coordenado contra alvos de alto valor simbólico no que diz respeito à representação do poderio econômico e militar norte americano e lógico dentro de seu próprio território, já que ataques a bases e embaixadas e até a belonaves desta nação atracadas em portos estrangeiros já haviam sido perpetrados com sucesso por seus inimigos, e sob o comando em sua maioria de Bin Laden, agora ícone de grande parte do mundo islâmico.  
+  
+Analisando-se o panorama pós Afeganistão e Iraque, e as pressões sobre Irã e a Coréia do Norte, podemos afirmar que os EUA e Israel estão longe de poder baixar a guarda contra seus inimigos, cujo único instrumento de que dispõem para a luta armada é o terrorismo, já que não são detentores de aparato bélico que possa fazer frente em pé de igualdade aos norte americanos e seus aliados.  
+Portanto acredito que se realmente Bin Laden continua vivo ou não, os EUA continuarão se preocupando e arcando com um alto custo financeiro a fim de se protegerem contra ataques de ordem terrorista dentro e fora de suas próprias fronteiras, inclusive existindo a possibilidade de uso de armas químicas e até nucleares, já que hoje em dia não são os únicos detentores das mesmas.  
+Assim sendo não vejo uma solução a curto prazo para esta situação já que ambas as partes não estão interessadas em acordos como os até então custurados por ambos os lados.  
+Portanto a espada de Damocles paira sob suas cabeças e como já provado em 11/09/2001 o escudo disponível não e assim tão eficiente, daí a preocupação e o stress causado a seus povos pela propaganda terrorista baseada em ameaças constantes via meios de comunicação disponíveis e fartos, sendo que seus psicólogos e psiquiatras estarão em meu entender bem ocupados por um longo tempo, já que muitos não agüentarão a pressão e o numero de infartos tende a subir, bem como as seqüelas tendem a permanecer por longo tempo.   
+

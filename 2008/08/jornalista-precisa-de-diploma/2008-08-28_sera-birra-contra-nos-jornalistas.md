@@ -1,0 +1,15 @@
+---
+title: Será birra contra nós jornalistas?
+date: 2008-08-28 08:38:49
+author: Bernardo Nicolay
+debate: Jornalista precisa de diploma?
+slug: sera-birra-contra-nos-jornalistas
+status: publish 
+type: post
+---
+
+A liberdade de expressão existe, todos tem o direito de expressar suas idéias, comentar sobre os fatos ocorridos e dar sua opinião sobre determinados assuntos.
+Mas e nós estudantes de jornalismo, o que estamos fazendo na faculdade? Sem a obrigatoriedade de diploma para exercer essa profissão, não existiria mais a faculdade de jornalismo, ninguém “perderia” quatro anos de sua vida aprendendo a fazer uma coisa, que todos já nascem sabendo, isso é, expor suas idéias, dar sua opinião. 
+O estudante de jornalismo, sem dúvidas nenhuma, quando formado, é bem mais capacitado do que aquela pessoa, que tem o seu blog na Internet e escreve todo dia sobre as notícias que o interessam, o jornalista formado, durante quatro anos aprende todas as técnicas necessárias para se escrever um bom artigo, fazer uma boa matéria, conseguir uma ótima entrevista, ele se dedica para sair da faculdade pronto para fazer jornalismo, isso é, apurar os fatos, checar as verdades, ouvir sempre os dois lados da história, e muitas vezes as pessoas que defendem a tese de que para ser jornalista não é necessária à conquista de um diploma, não aplicam essas técnicas quando produzem seus textos, não procuram saber realmente o que aconteceu, não “gastam” seu tempo escutando os dois lados da história.
+A profissão de jornalismo deveria ser mais respeitada, hoje, o que vemos é uma invasão de pessoas famosas ou não, tentando um espaço na mídia através das notícias. Temos modelos e ex-modelos apresentando programas, entrevistando as pessoas, ex-jogadores de futebol e de tantos outros esportes comentando jogos, entrevistando atletas, e muitas vezes cometendo erros que um cara formado, não cometeria.
+Por que um historiador necessita de diploma? E um sociólogo, até mesmo um professor, porque eles necessitam ser formado? Porque existe a obrigatoriedade para essas profissões de se provar que você tem um diploma e etc? Qualquer um pode estudar sobre determinados assuntos e ensinar para as pessoas não? Se eu dedicar o meu tempo para estudar matemática, eu ganho a capacidade de sentar com meu amigo e ensiná-lo sobre a matéria? Com certeza não. Um professor em sua faculdade, mais do que aprender matemática, ele aprende técnicas para o aluno não perder atenção dentro de sala, como abordar determinados assuntos, isso é, do mesmo jeito que deve ser com a profissão de jornalista. Ela não consiste somente em se comunicar e sim como se comunicar, como deixar as coisas claras e fáceis de serem entendidas, tentando mostrar sempre os dois lados da coisa, buscando sempre a veracidade dos fatos. O diploma para essa profissão deve ser obrigatório sim, com isso só melhoraríamos a qualidade das informações que nos é passada, os assuntos seriam mais bem elaborados e a qualidade do jornalismo que é praticado hoje em dia só melhoraria, tendo à sua frente pessoas capacitadas de se fazer exatamente o que é pedido.

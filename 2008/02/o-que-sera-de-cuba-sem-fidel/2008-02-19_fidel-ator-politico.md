@@ -1,0 +1,11 @@
+---
+title: FIDEL, ATOR POLÍTICO
+date: 2008-02-19 21:00:00
+author: leonardo.nascimento2
+debate: O que será de Cuba sem Fidel?
+slug: fidel-ator-politico
+status: publish 
+type: post
+---
+
+Eu nunca estive em Cuba. Nunca conheci nenhum cubano. O que ouço falar das opiniões públicas (idependentemente da ideologia) é que a ilha praticamente não tem analfabetos e mendigos, que o sistema de saúde pública é um dos melhores do mundo e que aqueles que discordam do status quo político vão para a cadeia (isso quando não vão para o paredón ou partem para o exílio em Miami) e que o esporte (por motivos óbvios, com exceção do futebol) é muito incentivado. O que vejo na mídia impressa e televisada é um país com infra-estrutura caíndo de velha, com Cadillacs dos anos 50 ainda rodando nas ruas, mas com um povo que aparenta ser amável e entristecido ao mesmo tempo. Na minha avaliação, Fidel Castro Ruz é o maior ator político que a História Contemporânea já teve. Por causa disso, ele próprio enganou-se quando disse que a História o absolveria, porque a sentença em seu caso não existe. O que existe é uma coexistência entre o Fidel ditador e o Fidel romântico. O Fidel ditador é inapelavelmente responsável, junto com sua camarilha, por inúmeros assassinatos daqueles que simplesmente discordam de sua política, mas que não difere nada das atrocidades denunciadas na base americana de Guantánamo. O Fidel romântico é uma lenda viva que agoniza junto com seus compatriotas, vítimas que são de um embargo rídiculo, arcaico, genocida e contraditório, haja visto que a China (mercado interessante para empresas americanas) reza politicamente pela mesma cartilha comunista. Se na análise da democracia, Saddam, Bush filho e Pinochet representam o mal, e Nélson Mandela, Gandhi e Ramos-Horta representam o bem, o que se pode dizer é que o bravo Comandante (para os socialistas românticos) ou o ditador mais antigo do mundo (para os direitistas sinceros) permanecerá por muito tempo como sendo o fiel da balança. Por isso, o destino de Cuba ainda dependerá por um bom tempo da sua lucidez mental, e também do comportamento do próximo presidente dos Estados Unidos. Uma China em tamanho menor (o mais provável, para mim) ou uma Sierra Mestra às avessas.

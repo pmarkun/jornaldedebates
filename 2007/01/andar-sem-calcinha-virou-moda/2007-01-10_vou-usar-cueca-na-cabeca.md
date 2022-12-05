@@ -1,0 +1,11 @@
+---
+title: VOU USAR CUECA NA CABEÇA !!!! 
+date: 2007-01-10 22:00:00
+author: valdemiro.silva
+debate: Andar sem calcinha virou moda?
+slug: vou-usar-cueca-na-cabeca
+status: publish 
+type: post
+---
+
+O mundo vive de explorar indivíduos que não tem inteligencia ou razão crítica.Fatos como esse, das calcinhas ou da Cicarelli, ganham espaço na mídia, pois essa vive de "vender" aquilo que um povo que conta com 90 % de pessoas idiótas, sem um nível mental mínimo, quér "comprar". Para agradar o povo, basta lhe "vender" "pão e circo".Essa frase é velha, mas vai continuar atual por muito tempo.Só em uma cultura onde a "babaquise" e ignorância é incentivada, fatos como esses ganham manchetes e nos "obrigam" a tomar conhecimento e comentar.Nada contra as mulheres usarem calcinhas ou não.Problema delas.Agora usar disso para aparecer e "faturar" é que é deprimente.E ter uma mídia que se serve a esse papel, também é deprimente.Mas o pior de tudo é um povo que gosta e pede tudo isso.Pois sem retorno e lucro, nada vinga. Dou como exemplo programas bons que presam a inteligência do telespectador, que foram "varridos" do "mapa". Agora programas imbecis ( tipo BBB) florecem, pois tem um público enorme (90%) e dão lucro. Tudo no Brasil comprova: o que for para explorar a imbelicilidade do povo dá resultado e grandes lucros. Então para que mudar tudo isso ?!! O negócio é faturar e manter esse povo cada vêz mais idióta, pois assim se garante um mercado consumidor com um potencial enorme. O grande problema do Brasil é ter uma população onde 90% não demosntra um minimo de inteligência crítica.No Brasil o lema é : tudo é permitido, desde que gere lucro.A lei, a religião,a moral; tudo isso apenas serve de "fachada" para acharmos que existe um pais de verdade, com um povo que busca a "ordem e o progresso". Aqui nesse país, ou somos exploradores ou explorados. Ou se for inteligente e íntegro, "tira o seu da reta" e fica "assistindo" o espetáculo grotesco. Tudo seria para dar risada, se não fosse tão sério.Mas fazer o quê!.Essa é a realidade.Nesse mar de "lama", saio em busca de pessoas e opiniões inteligentes.E de vêz em quando, para minha alegria, ainda encontro.Mas é uma raridade. Pois tem muito "babaca" posando de esperto, e muitos que até acreditam que realmente entendem de alguma coisa.Paciência !!!!

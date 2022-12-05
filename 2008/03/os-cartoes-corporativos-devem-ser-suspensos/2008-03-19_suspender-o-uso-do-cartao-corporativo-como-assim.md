@@ -1,0 +1,29 @@
+---
+title: SUSPENDER O USO DO CARTÃO CORPORATIVO? COMO ASSIM?
+date: 2008-03-19 21:00:00
+author: celio.lasmar
+debate: Os Cartões Corporativos devem ser suspensos?
+slug: suspender-o-uso-do-cartao-corporativo-como-assim
+status: publish 
+type: post
+---
+
+Ora, sabemos que em qualquer tipo de administração, existem funções a serem cumpridas por presidentes, diretores ou funcionários de qualquer escalão que necessitam de desembolso de numerário para que possam ser efetuadas a contento, assim temos que no govêrno a coisa não é diferente, já que o funcionário público de carreira ou o servidor exercendo cargo por delegação de cunho político, dependendo - devido ao fato de muitas atribuições não necessitarem de apoio financeiro ou reembolso de despesas efetuadas para sua execução - de suas atribuições necessitará se deslocar de um local para outro, de se hospedar, e de outras necessidades que precisem ser satisfeitas para que sua função seja desempenhada a contento no intuito de bem servir o conjunto da sociedade.  
+
+Assim como não sou conhecedor profundo dos mecanismos utilizados pelo serviço público para cobrir tais despesas, mas creio que antigamente o servidor, por exemplo, deveria receber um valor depositado em conta corrente o qual poderia gastar contra a apresentação das respectivas notas fiscais e comprovantes de gastos efetuados, e cujo funcionamento é até menos transparente a meu ver, já que pelo que parece ele poderia até colocar o dinheiro em sua própria conta corrente gastar e depois apresentar notas, recibos, etc.  
+
+Este sistema foi é claro como podemos ver substituído pelo tal do cartão corporativo, e cujo projeto deveria ter sido elaborado de forma a não permitir que seu portador pudesse utilizá-lo para usufruir benefícios próprios, limitasse os saques na boca do caixa, determinasse quem pode possuir como quando e onde, quais os limites permitidos com gastos, por exemplo, com refeições, hospedagem como deve ser feita a comprovação destes, etc.   
+
+Ou seja, prever e regulamentar ao máximo possível as variáveis inerentes ao uso deste sistema de pagamento pelos funcionários ou servidores públicos.  
+
+Pelo andar da carruagem é notório que nenhum critério ou muitos deles não são observados ao se colocar o tal do cartão corporativo na mão do servidor, e pior ainda não se criou - por conveniência é claro já que o dinheiro é publico e o público aqui sempre foi confundido com o particular desde a criação da República - sistema fiscalizador ágil e eficiente de seu uso a fim de coibir possíveis irregularidades e punir rápida, "repito" rápida e severamente o seu mau uso por servidores que mantidos pelo dinheiro da sociedade não possuem por ela o menor respeito.   
+
+Este fato não é privilégio do atual governo, pois esta farra já existia sem o tal do cartão corporativo, e até, a bem da verdade, o atual governo pelo menos pública na internet um portal onde são explicados os gastos efetuados, coisa que não existia anteriormente e que merece o reconhecimento da sociedade, é de fato um avanço na questão da gestão respeitosa do erário.   
+
+É preciso corrigir erros? Sim claro, uma nação não se pode permitir que a parcela do sagrado suor de seu povo e destinada à geração do bem comum possa ser administrada e utilizada por seus ditos funcionários públicos de carreira ou servidores representantes eleitos de forma tão aviltante sem nenhuma punição. E preciso investigar? Claro que sim, mas sem transformar a investigação em mero palanque eleitoral, e não é o que acontece, já que as CPIs neste país viraram mecanismo de puxação de tapete entre facções rivais e que não estão nem um pouco preocupadas na verdade com a raiz do problema, diga-se de passagem, e estão aí para confirmar todas as demais CPIs feitas no passado, portanto de meu ponto de vista acredito que seria bem mais confiável colocar a Policia Federal para tomar as providências necessárias quando aos atos criminosos, e deputados e senadores para trabalhar no sentido de aperfeiçoar ou de criar um novo projeto para regular este assunto que permita a maior transparência possível no uso desta prerrogativa, o que ai sim é querer mudar a coisa para melhor e mostrar interesse e respeito pela sociedade, em vez de tentar fazer dela massa de manobra para interesses eleitoreiros de facções descontentes com sua atual posição na administração pública.  
+
+Quanto à idéia deste cidadão que apresentou esta idéia de suspensão dos carões corporativos é mais uma amostra da demagogia como a coisa pública é tratada por aqui, já que alem de não resolver coisa nenhuma, só servirá para empacar os já tão mal prestados serviços à população na medida em que serviços essenciais não poderiam ser prestados por servidores que necessitam de ressarcimento de despesas com alimentação, deslocamento etc., a fim de executarem a contento suas funções e assim fazer com que a máquina administrativa preste os serviços necessários ao bom funcionamento administrativo de nossa sociedade, já que tais despesas como todos sabemos não estão embutidas na sua remuneração, e nem poderiam estar, pois são de cunho totalmente aleatório e dependem de atribuições momentâneas a serem cumpridas.  
+
+O cartão corporativo no futuro devido ao avanço da informática provavelmente poderá prescindir da lei que permite saque em dinheiro na boca do caixa, o qual ficará restrito mesmo tão somente casos muito especiais e em regiões ou para pagamento de serviços prestados por pessoas físicas à União e Estados em regiões remotas, onde o cidadão é claro não possuirá uma interface para passar o cartão.  
+
+Quanto a atual CPMI que investiga o caso já terá feito muito se conseguir determinar os pontos fracos do sistema e servir para aperfeiçoá-lo, o resto é jogar conversa fora. Espero que sirva, já que gera um gasto e, portanto, tem que haver o respectivo retorno com o aperfeiçoamento das instituições e de seu funcionamento.

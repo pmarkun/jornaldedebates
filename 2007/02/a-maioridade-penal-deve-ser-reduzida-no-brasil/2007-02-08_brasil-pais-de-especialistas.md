@@ -1,0 +1,15 @@
+---
+title: Brasil: País de Especialistas
+date: 2007-02-08 22:00:00
+author: luiz.santos7
+debate: A maioridade penal deve ser reduzida no Brasil?
+slug: brasil-pais-de-especialistas
+status: publish 
+type: post
+---
+
+No Brasil tentamos copiar quase tudo do chamado primeiro mundo. Os modismos, as tecnologias, os tratamentos psicológicos e outros tantos conhecimentos. O que não tentamos copiar dos países do primeiro mundo é a sua maneira peculiar de fazer justiça. Em qualquer país verdadeiramente desenvolvido os criminosos têm a certeza da punição, não se leva em conta se é menor ou maior de idade. No Brasil, os criminosos têm a certeza que não terão nenhuma punição, caso seja rico, tenha mandato político, tenha influência ou seja amigo de algum político ou ainda seja de menor idade.  
+
+ Nossos especialistas em comportamentos infantis e juvenis, acham que na idade da internet, do crime digital nossos "pobres jovenzinhos" não conseguem distinguir o bem do mal, fazem as barbaridades que são noticias todos os dias nos jornais porque não têm discernimento do real e do imaginário. Quando um menor toca fogo num mendigo, quando mata alguem, quando rouba, quando estupra, ele é a vítima. Nós devemos cuidar dos coitadinhos até eles ficarem de maior idade, para nos matar com uma sanha muito maior, pois não está acostumado com a punição dos seus crimes. Nossos filhos são responsabilidade nossa e por isso temos que ser responsáveis e responsabilizados por seus atos quando são menores na forma da lei. Se o menor não pode ser responsável por seus atos, seus tutores devem assumir esta responsabilidade, pois a sociedade não deve pagar o preço da delinquência de uma minoria. Os nossos promotores e juizes da infância e da adolescência só são promotores e juizes de menores delinquentes, quando deveriam se preocupar em manter e zelar pelo que é normal, que é cuidar da proteção da juventude e da infância, pobre ou rica que verdadeiramente precisa de proteção, para cuidar de estudos, saúde e outras necessidades inerentes à idade. Não deviam vir com essa demagogia que os coitados são assim porque nasceram de famílias pobres e não tiveram da sociedade aproteção necessária. esta colocação me incomoda porque sou filho de pai pobre e analfabeto mas não deixava eu chegar em casa com nada que ele não soubesse de onde vinha e assim criei meus filhos. Mas se algum de meus irmãos ou eu tivesse trilhado por caminhos tortuosos nào seria por ter pai pobre, mas sim por ter instinto ruim, porque todos os seres humanos não são iguais, e se alguem sempre é desculpado porque é menor porque é pobre ou seja lá porque for, não é justo que famílias de ìnocentes paguem por isto. Se ser pobre e sem oportunidade fosse desculpa para ser bandido, não haveria tanto filho de ricaços bandido, assaltando, matando e tocando fogo em mendigos por aí.  
+
+ Espero que os nossos especialistas se mudem para os Estados Unidos da América ou para a Inglaterra e voltem daqui a alguns anos com soluções para os problemas que nós verdadeiramente temos, que é uma dose de vergonha para essa corja que fazem as nossas leis.

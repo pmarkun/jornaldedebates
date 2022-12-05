@@ -1,0 +1,13 @@
+---
+title: O Esporte não se resume somente ao PAN
+date: 2007-06-29 21:00:00
+author: carlos.conceicao
+debate: Jogos Pan-americanos: investimento vale a pena?
+em_resposta: O Rio que virá com os jogos
+em_resposta_user: ministro.jr
+slug: o-esporte-nao-se-resume-somente-ao-pan
+status: publish 
+type: post
+---
+
+Tudo bem, o PAN  vai começar e todos nos estaremos torcendo pela equipes e pelo nossos atletas que na sua maioria, lutam com extrema dificuldade para treinar e competir, com pouco patrocínio e quase nenhuma  ajuda do poder público.Espero que os resultados alcançados pelos nossos atletas sejam gratificantes para eles, o que compensará o esforço e a luta, serão as vitórias e as medalhas que certamente virão para coroar o sacrifício destes brasileiros lutadores.Porém, depois da festa certamente temos a ressaca, o esporte no Brasil não se resume apenas ao PAN. E como anda o "esporte" pelo Brasil a fora? Quais os grandes projetos que temos para os brasileiros que estarão alijados do Jogos? Quais os grandiosos investimentos,  temos para os nossas crianças e jovens que precisam, com urgência praticar esporte? Com a palavra O MINISTRO.Ao final do PAN precisaremos fazer uma avaliação dos resultado práticos, analisarmos friamente quem ganhou e quem perdeu com o PAN. Será necessária uma grande prestação de contas ao povo, afinal estão gastando MILHÕES DE REAIS dos  impostos pagos pelos brasileiros de todas as regiões do Brasil.O Ministério dos Esportes precisa mostrar com clareza para toda nação brasileira, centavo por centavo, onde  os MILHÕES DE REAIS gastos com o PAN  estão aplicados, o mínimo que o povo  espera é uma prestação de contas clara e honesta por parte dos dirigentes, não apenas,  na esfera do governo federal, mas o governo do estado e o município também precisam prestar contas.Concluindo, O Esporte e a Educação Física, principalmente a escolar (aí a responsabilidade é do Ministro da Educação), vivem abandonados na maioria dos estados. Falta de quadras esportivas e quando existem são velhas e esburacadas,falta de condições materiais para as práticas e as aulas de Educação Física, profissionais mal formados ,mal pagos ou desmotivados. Espero que os Jogos Pan-americanos, alerte os dirigentes para uma grande reflexão sobre a situação do esporte e da Educação Física no Brasil. Precisamos urgentemente de menos  eventos de marketing e políticos e mais trabalho com investimentos sérios e honestos, para garantir um grandioso futuro para as nossas crianças e os jovens atletas e desportista que pretendemos educar e formar. PRECISAMOS  ARREGAÇAR AS MANGAS E TRABALHAR  MUITO SR. MINISTRO.

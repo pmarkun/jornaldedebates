@@ -1,0 +1,28 @@
+---
+title: Cultura da Proibição e Sociedade Repressiva
+date: 2007-05-08 21:00:00
+author: geraldo.pignaton
+debate: O cigarro deve ser proibido em locais fechados?
+slug: cultura-da-proibicao-e-sociedade-repressiva
+status: publish 
+type: post
+---
+
+  
+   
+   
+ Cultura da Proibição e Sociedade Repressiva  
+   
+   
+   
+ Virou moda Proibir. Nem nos tempos do Regime Militar se proibiu tanto. Já são tantas as proibições que, em pouco, teremos de recorrer a assessores em assuntos e produtos proibidos. Cada vez que se proíbe, cria-se um ou vários problemas secundários, ligados ao cumprimento e descumprimento da norma proibitiva. Demais, há que se ter fiscalização de sua observância (caso contrário, a proibição se torna inócua). Isso tem custos. Como já não dispomos nem dos recursos necessários para promover e cuidar de Saúde, Educação e outras essencialidades, acabamos tendo de optar entre qual delas priorizar. Aí surge um burocrático ocupante de cargo público e lança a manjada tese (jargão da incompetência) da "necessidade do envolvimento da Sociedade", para eficiência da Norma. Alguns estressados neuróticos ou decrépitos rabugentos sempre acorrem ao chamado, emoldurando o cenário caricato do nosso surrealismo tropical. Administrar por Leis sempre redundou em Fracasso e Corrupção.  
+ A desgraça deste procedimento, que pretende superar incompetência com proibição (proibir é a mais fácil das soluções aparentes), é que estamos construindo uma Sociedade Repressiva. Cultura de Proibição e Sociedade Repressiva são dois ingredientes básicos da Ditadura, do Totalitarismo. São como Hidrogênio e Oxigênio; falta apenas a centelha elétrica, para reagirem. A Centelha Elétrica é o envolvimento militar no quotidiano social; que já estamos vendo no Rio de Janeiro: As Forças Armadas nas Ruas. Militares são como Tigres; não podem sentir o gosto do sangue do Poder, que se tornam antropófagos. Tudo indica que estamos caminhando para uma Ditadura, criando condições, preparando terreno.  
+ Um exemplo desta Cultura Proibitiva é a ação do Ministério da Saúde.   
+ Constatando que a campanha antitabágica não está atingindo a meta pretendida, resolveu-se adotar "medidas restritivas" ao tabagismo. Toda forma de repressão é Burra. O fracasso da Campanha se deve, basicamente, às informações mentirosas veiculadas nas publicidades. Algo elementar em termos de comunicação, um verbo inadequadamente empregado. Parece um detalhe insignificante, mas há uma diferença imensa entre "provoca" e "pode provocar". Demais, as imagens repelentes estampadas nas caixas de cigarro, são de uma "sutileza mastodôntica", de uma boçalidade sem par, que de pronto provocam rejeição. A História da Mídia demonstra que a mensagem deve ser sutil, penetrante e agradável, para ser absorvida, ruminada e digerida. A decisão final é exclusiva do consumidor do produto; a mensagem tão só sugere. Campanhas publicitárias agressivas visam impacto e devem ser breves. Saturam logo.  
+ Tomemos alguns exemplos: Fumar provoca Câncer ou Fumar provoca Aborto. Ambas são mentirosas. Ninguém mais acredita nessas mensagens. Bem diferente seria, se o "provoca" fosse trocado pelo "pode provocar". Cigarro pode provocar câncer (de pulmão, de boca, de faringe, esôfago e, sobretudo de bexiga). De igual forma, de nada adianta divulgar, entre jovens, que Cigarro provoca Enfisema, sem explicar o mecanismo de ação e de longo prazo no desenvolvimento da doença.  
+ Trabalho com o problema há trinta e oito anos, desde o início quarto ano de Medicina (1969). Sou médico sanitarista e tísio-pneumologista. Fumei por doze anos, do início da adolescência até entrar na fase adulta. Tornei-me anti-tabagista. Fiz campanhas. Acompanhei e acompanho muitos pacientes terminais. Hoje, porém, já não proíbo meus pacientes de fumarem. Sento-me com eles e os ensino a fumar. Mostro-lhe que quem causa o dano pulmonar e cardiocisculatório são a fumaça e o CO2, explico-lhes como eles alteram a ecologia do pulmão e das artérias de grosso calibre; pondero com eles a quantidade, o horário e o momento em que o prazer de fumar pode compensar os riscos. A maioria restrige o uso, uma boa parcela (muito maior que o percentual atingido pelo Ministério da Saúde) deixa de fumar. Este processo é progressivamente mais eficaz e significativo com o aumento da idade do fumante.  
+ Afirmo, com segurança, por observações próprias, que uma significativissima parcela das pessoas, envolvidas diretamente no combate ao tabagismo, não conhece seus mecanismos de ação, no organismo. Não basta querer ajudar: Mais ajuda quem menos atrapalha.   
+ Tem coisas muito mais importantes para se fazer, em Saúde. Ao invés de aprofundar as medidas de combate ao tabaco, com ensaios "temporões", fora de hora, o pessoal do Ministério da Saúde deveria fazer uma revisão das medidas já adotadas. Parar de tratar os fumantes como idiotas, como criancinhas e buscar mensagens criativas, instrutivas. Esse povo que se senta em mesa de bar, pra bater papo, busca trocar experiências, se instruir. É melhor investir na sua intelectualização, sem "mensagens-aranhas". Os que são propensos à repressão proibitiva, ao invés de bar, vão para as Igrejas. Lá eles estão loucos para serem proibidos. Baixem lá estas normas, para os recintos das Igrejas: será um sucesso.  
+ Por que não consideram, por exemplo, a regulamentação do uso da maconha? Usuários de maconha bebem muito menos álcool, fumam menos tabaco e consomem mais comida, jogam mais conversa fora, são menos brigões e mais razoáveis. Sanitàriamente é muito melhor, e menos danoso: um mal menor.  
+ Pelo sim e pelo não, só peço que não mexam com a cerveja. Aí eu vou partir para a "desobediência civil", para a "clandestinidade".  
+

@@ -1,0 +1,11 @@
+---
+title: Paz universal: uma utopia possível?
+date: 2008-01-02 22:00:00
+author: ricardo.barros
+debate: A humanidade vai alcançar, um dia, a paz universal?
+slug: paz-universal-uma-utopia-possivel
+status: publish 
+type: post
+---
+
+A palavra utopia representa um objetivo de paz, amor e fraternidade que, possivelmente, nunca será alcançado pela humanidade. Entretanto, ela também é um objetivo que se encontra em várias religiões. Muçulmanos, judeus, budistas e cristãos vêem no futuro da humanidade, uma sociedade ideal, justa, sem diferenças sociais, baseada na paz e na harmonia universais.Não acredito que a sociedade irá alcançar um dia essa situação. Todavia, não podemos perder de vista esses objetivos tão nobres e ao mesmo tempo tão distantes. Durante toda sua história, o homem tem lutado pela preservação de seus interesses, mesmo que isso custe vidas ou a desarmonia entre os diversos povos habitantes desse fantástico planeta azul.Mesmo que não consigamos a paz no futuro, devemos nos esforçar por alcançá-la, afinal o planeta tem demonstrado que seus recursos são finitos e que, se o homem viver em constante conflito, esses recursos logo se tornarão escassos, inviabilizando a vida de vez no nosso planeta.De um tempo para cá, nos noticiários, temos visto que as atitudes belicosas tem ganhado das iniciativas pela paz no mundo. Muitos são os discursos daqueles que querem a paz, mas poucos são aqueles que tem se esforçado efetivamente para obtê-la. As guerras se sucedem no planeta. Ora é o conflito no Afeganistão, ora é a invasão militar do Iraque. Mais recentemente os conflitos na África assustam o mundo...Tudo isso acaba cada vez mais nos afastando da paz. Todavia, podemos fazer diversas coisas no nosso dia-a-dia com o objetivo de construi-la. As atitudes de respeito ao próximo são exemplos importantes para se obter a paz através das relações cotidianas. O respeito à preservação do meio ambiente é outra atitude importanmte para alcançá-la. Como dizia Mahatma Gandhi, toda vez que um homem age no sentido de construir a paz é toda a humanidade que se beneficia do seu gesto. Sigamos então, em 2008, os conselhos de Gandhi e tentemos construir cada dia um mundo de harmonia, respeito, carinho e amor por nossos semelhantes.

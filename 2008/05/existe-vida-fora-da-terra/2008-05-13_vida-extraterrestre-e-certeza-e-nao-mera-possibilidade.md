@@ -1,0 +1,15 @@
+---
+title: VIDA EXTRATERRESTRE É CERTEZA E NÃO MERA POSSIBILIDADE
+date: 2008-05-13 21:00:00
+author: celio.lasmar
+debate: Existe vida fora da Terra?
+slug: vida-extraterrestre-e-certeza-e-nao-mera-possibilidade
+status: publish 
+type: post
+---
+
+Ora é sabido que a religião católica e outras mais por aí foram montadas em certos pressupostos, os quais a bem da verdade não possuem nenhum paralelo com a realidade exibida pela própria natureza da criação, ou seja, as regras da natureza não combinam na prática com o apregoado pelas religiões, principalmente aí a católica, que para se sustentar inventou dois personagens da carochinha, a saber, Adão e Eva para explicar a origem do ser humano, mas esqueceu-se que a vida não se resume apenas ao ser humano, a vida é na verdade muito mais extensa, ou seja, as personalidades do criador são infinitas. Além do que todo chefe religioso praticamente se intitula representante do Criador aqui na terra, e que saiba ele nunca indicou ninguém para o cargo, até porque não trabalha desta forma.  
+
+Ora a descoberta de vida extraterrestre choca sim com os dogmas propalados pela igreja católica em particular e eles sabem disto, mas esta como toda crença religiosa é extremamente ardilosa em arrumar justificativa para tudo, a fim de continuar a manter sua esfera de influência, que aliàs vem diminuindo à medida que a ciência evolui. Quanto ao fato da existência de vida fora da terra, seja ela vida biológica simplesmente ou mesmo vida inteligente, não é com certeza absoluta uma possibilidade é um fato. Ora a vida é teimosa e resistente, prolifera como já comprovado em meios que antes considerávamos com nossos parcos conhecimentos como impossíveis de lhe dar sustentabilidade e condições evolutivas. Seria uma tremenda falta de bom senso, que hoje em pleno século XXI, com os conhecimentos que nossa sociedade acumulou e com as tecnologias de que dispõe ignorar a existência de vida fora de nosso habitat, no caso o planeta terra. A vida, ou melhor, a manifestação direta de nossa essência é dotada de um poder extremo e de uma vontade férrea de se manifestar em todos os aspectos, e brota de forma sistemática por todo o universo atualmente conhecido ou desconhecido e nas mais diversas formas imagináveis, portanto, é só uma questão de tempo até que nos deparemos com outras formas de vida sejam elas consideradas de nosso ponto de vista inteligentes ou não. Ignorar este fato no atual momento evolutivo de nossa espécie é como que voltar à chamada idade das trevas, que, aliás, foi proporcionada ao mundo europeu pela própria igreja católica a fim de que mantivesse seus privilégios, e daqueles que lhe apoiavam na dominação da sociedade à época.  
+
+Portanto pensar que diante da dimensão do universo conhecido nossa Essência tenha escolhido só se manifestar por aqui. Seria realmente uma tremenda burrice para essa sua personalidade humana como um todo se julgarmos pelo nível de conhecimento a que chegou atualmente sobre sí e sobre o universo em seu entorno. Pessoalmente, portanto, não tenho dúvida nenhuma de que a vida é uma regra universal e pulula por quase todos os rincões da criação.

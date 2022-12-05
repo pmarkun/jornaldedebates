@@ -1,0 +1,13 @@
+---
+title: O PÊNDULO DO PODER
+date: 2007-08-09 21:00:00
+author: wagner.martins2
+debate: O que é ser esquerda no Brasil de hoje?
+slug: o-pendulo-do-poder
+status: publish 
+type: post
+---
+
+Ser esquerda era ter a devoção do bem comum, ser igualitário, libertário, pregar uma sociedade estilo comunidade. Muitos se embebedaram da sua fonte mas hoje regurgitam o método da contra-mão. Com o estilingue na mão, mamonas nas vidraças do poder. Afinal eles só olham para o próprio umbigo e trabalham para manter as próprias benesses. Criaram fantoches de educação (que deseduca), saúde (dos comprimidinhos baratos), segurança (blindada para eles e ao deus dará para os outros), progresso (nas suas contas em paraisos fiscais)e muitos outros espantalhos. Mas depois de ascender ao poder pelo votodaqueles que clamaram por mudanças significativas, fecharam o manual e também foram ver o seu lado, por não, também são filhos de Deus. Deus!? Diante dos dragões da economia uma retórica agressiva camuflada por uma permissividade histórica. Abriram seus sacos de bondade: bolsa-família, bolsa-escola, cota para negros nas universidades, vale-gás. O sertão vai virar mar irrigado peo "velho Chico". A economia vai bem , obrigado, afinal sem grandes transtornos internacionais para acabar com o nosso lastro monetário. Os esquerdistas dogmáticos se renderam a pragmática, ou tiraram a máscara de ferro.O pobre tem mais kilometragem no supermercado e sai com o carrinho mais abastecido. Vai levar pra casa iouigurte, bolacha, shampoo..é só sorrisos de fio a pavio.O cetro da verdade caiu da mão dos paladinos da justiça. Mas conseguem mexer o angu de uma forma mais proficua que os neos-liberais. Menestreis da verdade desafinaram feio e acabaram ovacionados pela plebe. Não parece o " mais do mesmo" mas com um tempero diferente.E lá fora , o nosso ex-torneiro mecânico posa de estadista e faz analogias futebolísticas para mostrar o escore vencedor. Na verdade no nosso país existem um agrupamentos de siglas que aglutinam interesses mais do que políticos. Tem deputado que brinca de amarelinha pulando de um partido para o outro com a maior desfaçatez. Mas são as regras democráticas. Quanbdo algo estpa cheirando podre, CPI, muita discussão, holofotes da imprensa, um calhamaço de folhas pra manter o status quo. Infalível. diante da saraivada de escandâlos, eles não atingem os decibéis do decoro parlamentar e nem chegam aos ouvidos do mandatário da nação. Qual é a bifurcação ideológica?  
+
+Esquerda pra mudar, humanizar, parir um país mais equanine ou direita, que procura aumentar os desvãos entre ricos e pobres. Está difícil arrazoar a questão. Ou será que no fundo todos são ambidestros?

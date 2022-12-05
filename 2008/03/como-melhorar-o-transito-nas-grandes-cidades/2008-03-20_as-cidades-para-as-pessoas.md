@@ -1,0 +1,13 @@
+---
+title:  As cidades para as pessoas.
+date: 2008-03-20 21:00:00
+author: Roberto Laranjeira
+debate: Como melhorar o trânsito nas grandes cidades?
+slug: as-cidades-para-as-pessoas
+status: publish 
+type: post
+---
+
+Precisamos parar de pensar o mundo para os automóveis.O problema dos congestionamentos nas grandes cidades é fruto da cultura automobilistica, onde o automóvel vai muito alem de um meio de transporte.Precisamos começar a pensar em projetos para as cidades onde o mais importante seja o conforto das pessoas e não dos automóveis.Quando pensamos em soluções para o transito congestionado dificilmente pensamos na posibilidade de deixar nosso carro em casa.Tem gente que não se imagina a pé quatro quarteirões até a padaria ,no entanto compram ou pagam uma academia para andar kilometros olhando para uma parede numa esteira elétrica. Idéias de novas avenidas,ruas mais largas,vias elevadas sempre são analisadas do ponto de vista de motorista para motoristas e ai esta o erro.Com campanhas publicitarias hipnóticas e condições de pagamento cada vez mais longas, o sonho de ter um automóvel esta cada dia mais fácil.Porem a fisica diz que dois corpos sólidos não podem ocupar o mesmo espaço no universo.Precisamos desmistificar a cultura do automóvel entendendo que é apenas um meio de transporte onde o mais importante é o conforto dos seres humanos.Tentar morar perto do trabalho ou vice versa podendo ir e vir a pé ja seria um bom começo, aquela romaria demanha e fim de tarde nas marginais e grandes avenidas ja diminuiriam muito.Os planos de desenvolvimento urabano deveriam equacionar e financiar moradia e trabalho proporcionalmente por regiões onde as duas coexistiriam interagindo de maneira harmoniosa.É mais barato investir em infraestrutura de moradia e implantação de negócios nas regiões periféricas hoje, doque impludir e recontruir os grandes centros urbanos daqui a alguns anos na intensão de resolver os problemas de transito travado.O poder publico deveria esquecer os automóveis,começando pelos próprios,assim utilizando os transportes publicos começariam a entender o porque dos congestionamentos e com certeza soluções e melhorias surgiriam rapidamente.Democratizar e integrar meios de transporte dando direitos iguais a bicicletas,patins,patinetes e qualquer outro viável que tenha como objetivo o conforto de seus usuários, no minimo melhoraria a qualidade do ar que respiramos.A solução para melhorar o transito nas grandes cidades esta em pensar apenas nos deslocamentos dos cidadãos e não dos automóveis.A luta é: grandes monopólios X saúde pública.Escolha seu lado e lute pela sua vida.  
+
+EDUCAÇÃO,SAÚDE E SOLIDARIEDADE.

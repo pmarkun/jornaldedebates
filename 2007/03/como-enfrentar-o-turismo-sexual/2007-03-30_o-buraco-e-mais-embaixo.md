@@ -1,0 +1,11 @@
+---
+title: O buraco é mais embaixo
+date: 2007-03-30 21:00:00
+author: humberto.spina
+debate: Como enfrentar o turismo sexual?
+slug: o-buraco-e-mais-embaixo
+status: publish 
+type: post
+---
+
+Acho curioso que no país mais católico do mundo fiquemos preocupados com tal tema!Ou será o contrário?Não há em mim, nenhuma intenção de acusar a igreja católica de ser a responsável por esta mazela social [qual mazela? Especificamente a do turismo sexual infantil, já que o turismo sexual adulto existe desde sempre, em todas as épocas e sociedades e com a globalização, em todos os lugares do mundo!]Se uma menina ou menino de 16 anos pode votar para presidente da república, cargo que consideramos de grande responsabilidade [sobretudo social], não tenha condições de trabalhar como prostituta [isso é uma coisa que ainda não entendi direito. Até porque pela natureza mesma das coisas, biologicamente, o bicho-homem-fêmea ao menstruar já possui todas as condições para copular e constituir prole].Mas o buraco é mais embaixo , aqui no sentido de ser a causa da discussão do tema ser relegada a segundo plano, ou seja,  o bicho-homem-fêmea não se constitui só de corpo e biológico, mas também de psíquico! Que tipo de formação e/ou informação a sociedade como um todo tem passado às nossas crianças e às nossas futuras as mulheres?Que tipo de educação sexual se tem transmitido a elas?Que valorização se dá a mulher em nossa sociedade?Quais as condições sócio-econômicas possuímos para embasarmos, em futuro não tão longínquo, uma sociedade justa?Por quê as meninas se prostituem? Será que, em princípio,  busca de puro prazer? Ou há nelas a necessidade de buscar carinho, afeto e respeito que não possuem em suas casas? E por conseqüência dinheiro que vem dos turistas para matar a fome sua e de seus irmãos?Onde estão os pais dessas meninas?Possuem elas um sistema de saúde que lhes confere uma blindagem para essa "profissão"? E pior, será que existe um sistema de proteção para que essas meninas não se tornem mães antes do tempo? Ou que não contraiam doenças, às drogas que as levem à invalidez e à morte? Se num país, eminentemente católico, é proibitivo o uso de camisinha?São respostas que busco, respeitosamente....

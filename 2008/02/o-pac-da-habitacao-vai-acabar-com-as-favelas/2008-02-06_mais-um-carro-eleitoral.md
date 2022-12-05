@@ -1,0 +1,11 @@
+---
+title: MAIS UM CARRO ELEITORAL!
+date: 2008-02-06 22:00:00
+author: max.paim
+debate: O PAC da habitação vai acabar com as favelas?
+slug: mais-um-carro-eleitoral
+status: publish 
+type: post
+---
+
+Essa política de investimento do governo federal é mais um instrumento de compra de votos do povo viciado em assistencialismo. E ainda serve de resposta aos esclarecidos e à imprensa que cobram ferrenhamente atitudes deste indolente governo desde o incidente do mensalão. Mata-se assim, dois coelhos com uma cajadada só.    O vírus das mazelas que assolam este país é resultante da forma de governo. Um governo máximo como o nosso é um governo que possui plenos poderes de interferir na economia e fica responsável por prover a sociedade de suas necessidades básicas. Assim é o nosso presidencialismo.    Se tivéssemos um estado mínimo que basicamente gerenciasse e mantivesse a segurança, sem objetivos de lucro, desse ao povo um salário que custeasse educação e saúde privadas, não teríamos níveis de pobreza quase iguais aos africanos.    O sistema do presidencialismo brasileiro já está formado e já viciou a maioria dos futuros políticos. Muitos querem ascender na carreira porque pretendem se eleger apenas para receber um bom salário ou mesmo receber um setor do governo eleito para gerenciar.    Isto poderia ser extinto se o salário mínimo fosse equivalente ao salário dos parlamentares e a carga tributária fosse apenas um inocente gato, ao contrário deste leão atual. Com isto realizado, as paixões pelas profissões seriam o primeiro motivo de uma pessoa estudar para aquela área, e não o campo de trabalho que o curso oferece.    Neste quadro caótico aparece, na minha concepção, o principal motivo do atraso da sociedade: a super população, que se não for controlada sempre será um empecilho no desenvolvimento do país e dará motivos aos governos para criarem projetos assistencialistas para angariarem seus votos, mantendo a rolar assim esta imensa bola de neve que é nutrida por lulas da vida que levam no papo este povo imenso cada vez mais aflito por discursos populistas.    O socialismo democrático sério em um estado mínimo é a melhor forma de governo para este país da República das Bananas.

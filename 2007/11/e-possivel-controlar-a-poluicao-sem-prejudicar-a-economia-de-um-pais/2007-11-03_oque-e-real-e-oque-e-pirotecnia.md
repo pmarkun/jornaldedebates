@@ -1,0 +1,11 @@
+---
+title: oque é real e oque é pirotecnia?
+date: 2007-11-03 22:00:00
+author: joao.assis
+debate: É possível controlar a poluição sem prejudicar a economia de um país?
+slug: oque-e-real-e-oque-e-pirotecnia
+status: publish 
+type: post
+---
+
+Em um texto lido hoje por mim pude notar uma conclusão por parte dos autores que beira o absurdo.Em certa parte do texto eles chegaram á conclusão que o deserto do saara pode se expandir afetando todos os paises ao seu redor,mas que tambem pode voltar á ser uma exuberante floresta como era no passado,ora esta previsão qualquer um pode fazer até uma criança de cinco anos,é como um metereologista fazendo a seguinte previsão (amanhã se não chover pode ficar nublado ou então teremos sol)em resumo é chover no molhado.então como profetizam muitos,se a quantidade de carbono na atmosfera ja atingiu niveis irreparaveis nao tem oque fazer é esperar para ver.Vejam como as pessoas pensam,a noticia tem que ser bombastica,tem que anunciar o fim do mundo,emfim,somos bombardeados por noticias ruins,geralmente escritas por pessoas despreparadas.Quando falo despreparadas me refiro á pessoas que escrevem sobre areas que nao dominam.em toda noticia temos que ter sobriedade,não basta sair por ai escrevendo sobre catrastofes,profetizando o fim do mundo,este é um lugar confortavel se der certo minhas previsões,eu avisei,se der errado,ainda bem! È este assunto do aquecimento global que me tras perplexidade,poucas pessoas que realmente entendem deste assunto escrevem sobre ele,teve uma vez que li um texto interessante sobre o assunto,veja bem se voce tiver uma pedra de gelo dentro de um copo cheio de agua quando esta pedra derreter o copo vai transbordar?È logico que não então como tem uns caras que dizem que se as calotas polares derreterem o mar pode subir ate 30 metros,enquanto outros ja profetizam que o mar pode subir 6 metros,ou seja um quinto da previsão anterior,por ai vemos que não da para dar credito para estes profetas apocalipticos,acho que é só gente querendo ganhar dinheiro com a desgraça da humanidade,emfim desabafei,nao aguento mais ler tanta besteira,que temos um problema isto é obvio,mas chega de tanta besteira,vamos tentar encontrar uma solução para o problema,não ganhar dinheiro com ele.

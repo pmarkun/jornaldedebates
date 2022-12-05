@@ -1,0 +1,23 @@
+---
+title: O que falta no presidente é honestidade
+date: 2006-10-24 21:00:00
+author: sen.cesar.borges
+debate: JD no Congresso
+slug: o-que-falta-no-presidente-e-honestidade
+status: publish 
+type: post
+---
+
+(...)É realmente trágico ver aquela figura, que é o Presidente do nosso País, defendendo as posições que defende hoje no debate, mentindo de forma deslavada para a população brasileira, apresentando-se como candidato dos pobres, o pai dos pobres(...). Lamentavelmente(...). Lula não passa de um arrivista, faz o que for necessário para se manter no poder. Mente, distorce a verdade, imputa a seus adversários inverdades(...)
+Foi colocada em curso uma prática que o PT mantém até hoje: a da dissimulação, da mentira, da tergiversação dos fatos. Ele hoje é um Presidente que se esconde atrás de seus companheiros, que vai entregando um a um para se manter no Poder; um Presidente que nada sabe, que nada viu, mas está por trás de todas as ações(...)
+No fundo, sabe exatamente toda a história, sabe de onde veio o dinheiro, mas a posição tem sido na questão do valerioduto, posteriormente, do mensalão, assim também no "dossiêgate", assim nas cartilhas, 11,7 milhões de cartilhas que, segundo o próprio Governo, foram entregues ao PT - isso já seria um crime, uma ilegalidade -, e que nem sequer foram confeccionadas. (...)
+Hoje, passa a ser notícia nacional que o Governador eleito da Bahia, Jaques Wagner(...) vem dizer à Nação brasileira, que ouve de forma estarrecida, que petistas do dossiê Vedoin têm o direito de mentir. (...)Se eles têm direito de mentir é porque têm algo a esconder.(...) 
+Não tenho dúvida de que o Presidente Lula está sabendo de tudo, a esta altura, nos mínimos detalhes. Ele não está sendo é honesto com a Nação brasileira, e, lamentavelmente, tem sido esta a prática nos dois últimos anos: mentir, mentir e mentir; além de dizer: "Não, eu não sou investigador; há uma Polícia Federal, há Ministério Público; há Justiça; se um dia condenar, muito bem; enquanto não houver condenação, somos todos inocentes!" (...)
+É muito grave. Não é à toa que os jornais brasileiros publicaram em primeira página essa declaração do Sr. Jaques Wagner. 
+Ontem, após o debate na Record, mais perplexos ainda ficamos quando ouvimos o Sr. Jaques Wagner dizer que o candidato Alckmin, ao cobrar do Presidente Lula investimentos em infra-estrutura no Nordeste(...) desconhecia os investimentos do Presidente Lula no Nordeste e dava o exemplo da Bahia, cujo Produto Interno Bruto vinha crescendo mais de duas vezes que o do País, isso por obra e ação dos investimentos do Presidente Lula na Bahia.
+Ora, isso é uma mentira deslavada, uma mentira sem tamanho! A Bahia vem crescendo (...)graças ao esforço dos seus governantes e do seu povo, que souberam fazer um trabalho, nos últimos anos, a favor do crescimento do Estado.(...) 
+O que o Presidente Lula fez pela Bahia nos seus quatro anos de Governo? Fez alguma estrada pela Bahia? Recuperou as rodovias baianas? Fez algum porto? Construiu, por acaso, o tão desejado gasoduto, ligando o Rio de Janeiro à Bahia? O Presidente Lula ressuscitou, como prometeu, a Sudene, que levou Celso Furtado, adoentado, para Fortaleza, a fim de lá fazer uma pantomima de refundação da Sudene? Não, (...)o Presidente Lula não fez absolutamente disso nada pela Bahia.(...)
+O País está sem obras de infra-estrutura; o País está sem crescimento econômico. Hoje, a Bolsa de Valores está tendo uma acentuada elevação nos seus índices por conta de que a Vale do Rio Doce está comprando uma empresa canadense e passando a ser a segunda maior mineradora do mundo. E isso está se dando graças à privatização da Vale do Rio Doce. E o Presidente Lula se passa de estatizante, quando ele, no Governo, privatizou o que pôde e que esteve ao seu alcance, e o maior exemplo disso é que ele privatizou as florestas brasileiras.(...)
+Questionado se parecia crível que o Presidente não soubesse da negociação para a compra do dossiê Vedoin, tendo tantas pessoas de seu círculo íntimo envolvidas no escândalo, Jaques Wagner não perdeu o bom humor e disse: o velho Sherlock perguntaria: "A quem interessa isso?". Seguramente não interessa ao Presidente Lula. Ora, não interessa ao Presidente Lula? Então, a quem interessaria esse relatório? (...)E será que não interessaria a Aloizio Mercadante esse dossiê para liquidar seu oponente direto(...) É claro que interessaria. Então, "a quem interessaria?", pergunta Jaques Wagner. A Mercadante, de forma direta; e, indiretamente, interessaria a quem? Ao Presidente Lula(...)
+Discurso do dia 24/10/2006
+Leia o discurso na íntegra

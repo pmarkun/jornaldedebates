@@ -1,0 +1,13 @@
+---
+title: A verdade que existe
+date: 2006-10-19 21:00:00
+author: luigi.riveiro
+debate: Quem deve ser o próximo presidente?
+slug: a-verdade-que-existe
+status: publish 
+type: post
+---
+
+Não é difícil andar em qualquer capital brasileira, ou em qualquer cidade do nosso interior, e ver a olho nú o que é o nosso país. Por mais que um governante não tenha tempo para fazer isto, quando ele chega por exemplo em São Paulo e pega a Avenida Jornalista Roberto Marinho, ele vê a verdade que existe. Quando ele chega no Rio de Janeiro e pega a linha vermelha, mais uma vez ele vê a verdade estampada ali a frente. Em Porto Alegre, quando este mesmo governate atravessa o início da freeway, ele vê, por incrível que pareça, a mesma verdade. Não posso falar aqui de todos os municípios brasileiros, então vou ficar com estes três como exemplo. Ao ver alguns debates, entrevistas e programas de TV dos candidatos, me pergunto se algum deles teria coragem de tirar seu terno alinhado e viver a vida destas pessoas por um período de um mês. Digo um mês pois considero um ciclo de entradas e saídas. Entradas dos possíveis programas socias como "bolsa" disto, "bolsa" daquilo, entradas de algum dinheiro para sustento. Tento não reconhecer o salário pois nas condições que vivem estas pessoas, é muito achar que contam com salário mensal. E saídas pois neste ciclo pagam-se taxas, dívidas, compra-se(ou tenta-se comprar) comida, entre outros. O fato é que dizer aos quatro cantos do mundo que se investe bilhões em programas sociais, outros bilhões em geração de emprego e outros bilhões em um monte de coisa que a gente não vê, é reconhecer que esta verdade apresentada acima não existe. E é fato que não existe pois "eles" não vivem ali. "Eles" não precisam se preocupar quando acordam se os filhos não vão comer alguma coisa hoje, ou se a mãe vai morrer nos próximos dias pois não tem remédio ou não é atendida em nenhum hospital decente, ou então se o pai vai voltar mais uma vez para casa sem um tostão no bolso. Achar que R$ 85,00 por mês resolve a vida de alguém é pedir encarecidamente para tentar fazer isto durante um mês. Estes mesmos R$ 85,00 que  na hora da compra retornam em 40% para o mesmo governo(ou seja, o que o povo recebe no fundo são R$ 51,00) em forma de tributos e que não retornam de forma alguma para estas pessoas. Falo tudo isto pois na minha opinião nenhum dos candidato vê o que todo nosso povo vê no seu dia a dia. Nenhum deles quer realmente mudar o curso da vida destas pessoas pois se este fosse o real motivo de suas candidaturas, eles apresentariam o país como ele é em seus programas e não um país de faz de conta, ou o país que eles vêem a sua volta dentro de palácios e carros de luxo. Digo então : nem um, nem outro.
+
+

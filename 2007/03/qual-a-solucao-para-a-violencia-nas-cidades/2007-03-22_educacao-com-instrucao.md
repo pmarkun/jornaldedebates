@@ -1,0 +1,13 @@
+---
+title: EDUCAÇÃO COM INSTRUÇÃO
+date: 2007-03-22 21:00:00
+author: dekfelis.radomski
+debate: Qual a solução para a violência nas cidades?
+slug: educacao-com-instrucao
+status: publish 
+type: post
+---
+
+Está provado que esta tática de combater a violência não está dando certo. È como matar as formigas na árvore que ela destrói, quando o certo é matá-las no formigueiro. Alguém já viu aí um debate ou um congresso ou uma reunião com fins de debater esse tema ? A violência tem sido focada pela imprensa sempre como um ato dela, nunca em seus motivos. Por que acontece a violência e por que ela cresce tanto dia a dia ? Qual o berço da violência ? Como ela é gestada ? Aí sim, iniciaríamos um novo ciclo sobre o combate a ela, sem matar inocentes em balas perdidas ou espalhando o terror. A primeira célula da gestação da violência acontece na miséria, que animaliza o ser humano, que o revolta e o faz enveredar por caminhos que nem eles mesmo gostariam. Mas, vejamos: qual seria a nossa posição se, por um acaso do destino, nos faltassem os recursos mínimos necessários para dar-mos a nossos filhos ? É fácil ver uma criancinha, que é nosso filhinho, chorando de fome e ficarmos tranquilos quanto a esse quadro ? Claro que não. Os recursos da nação são distribuídos muito, muito desigualmente. Então, nasce a revolta, o ódio contra a sociedade que o maltrata e não há onde e nem como conseguir os mínimos recursos que ele precisa para si e para os seus. Como conseguí-lo ? Sem recursos, consequentemente sem amigos, sem condições de nada, nem auxílio médico, nem de acesso a educação, o que pode ser esse cidadão mais tarde ? Multiplicando tudo isso... dá no que está acontecendo hoje.  
+
+Solução: educação e instrução, para que as pessoas iguais a nós, que não são animais, possam se esclarecer, se sentirem gente, e buscar suas oportunidades de igual para igual. É tarefa do estado sim, proporcionar a seus cidadãos isso. Precisa um governador mudar essa forma de agir: caveirão não resolve; educação sim. Cerquem-se os bolsões de miséria com uma escola e um posto de saúde, não com polícia. Em pouquíssimo tempo a violência diminue. Onde ficam as crianças dos bolsões de miséria o dia todo ? Lá, no meio da violência. Quais suas perspectivas de futuro ? Nenhuma. Se estivessem na escola, suas chances aumentariam muito, pois sairiam do "zero de chance" que elas tem hoje. Essa seria a primeira atitude. Essas crianças romperiam o círculo vicioso de que todas elas estariam destinadas a nada. Os próximos passos para a violência diminuir seriam dados praticamente como uma consequência desse: EDUCAÇÃO E INSTRUÇÃO.

@@ -1,0 +1,13 @@
+---
+title: Como se forja uma opinião (?)
+date: 2007-04-23 21:00:00
+author: alan.reis
+debate: Jogo de azar: os bingos devem ser proibidos?
+em_resposta: Como se forja um país
+em_resposta_user: marcelo.idiarte
+slug: como-se-forja-uma-opiniao
+status: publish 
+type: post
+---
+
+Um diamante raríssimo pode ser justaposto em um anel feito do mais vagabundo latão? Se você responde que sim, está inegavelmente admitindo que, no jogo do bem-me-quer-mal-me-quer, sentimentos que - em tese - divergem, a margarida é sempre a mesma. Se você responde que não, está vendando os olhos e vendendo a alma a um demônio trapaceiro que te forja a realidade. Sempre haverá a maldita dialética, empurrando opiniões e vendendo inverdades não tão mentirosas assim.É tudo muito simples: não se nega aqui, sequer um segundo, que vivemos em uma sociedade aristocrática e burra, erigida sobre valores contreau-vertidos, onde time is money, muscle against brain, e a novela de Manoel Carlos é o retrato fiel do so-called chaos que vivemos. O Jornal do Brazil transmite aquilo que a down, down, down na high society quer ler e o Hora Extra (que incrivelmente custa miseráveis CINQUENTA CENTAVOS) passa aquilo que o povão GOSTA de ler: resumée de novelas, preço de fusca nos classificados, tragédia familiar em Duque de Caxias e o horóscopo de Zora Yonara.O povo (brasileiro em geral, top to the bottom na pirâmide de Kelsen) quer ver a repressão, gosta de ver grades, pessoas ENternadas INternadas em Instituições Prisionais com Tv a Cabo, Visita Íntima e Pizza no Jantar. Isso alimenta o ego do pedreiro e do presidente da Res Publica (ambos estão na mesma classe trabalhista). Então, o Jornal Nacional não vai noticiar o Excelentíssimo Sr. Dr. Juiz de Direito da \_\_\_ª Vara Cível de Pindamonhangaba prolatando uma linda sentença (como APOSTO que não fez com o Tribunal de Justiça de São Paulo, que acaba de inovar proundamente a Cultura Jurídica, ao permitir que um FETO ingressasse com uma ação). Não é interessante e não surte os efeitos publicitários-jornalísticos que hoje a mídia informativa deve hoje produzir. Então, é muito fácil vomitar em cima de dois ou três (mais, eu sei) que fizeram besteirinha-da-estrela, do que aplaudir os muitos (e é CLARO que, em que pese a natureza corrupta e corruptível do homem político lato sensu) que ainda fazem a coisa andar pra frente. Afinal, no Plasil (quero dizer, Brasil), todo adolescente que usa roupas rasgadas é drogado, todo garoto que chora é emo, todo homossexual é promíscuo e toda música é ruim.Inconstitucional é querer forçar a barra com o Princípio da Igualdade (formal), jogando cada TOGADO num saco preto e levando para o IML da credulidade.

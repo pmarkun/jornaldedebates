@@ -1,0 +1,15 @@
+---
+title: Língua nossa de cada dia na Internet
+date: 2007-06-29 21:00:00
+author: nelson.valente
+debate: O jornal impresso vai acabar?
+em_resposta: O uso da Internet?
+em_resposta_user: nelson.valente
+slug: lingua-nossa-de-cada-dia-na-internet
+status: publish 
+type: post
+---
+
+(\*) Nelson Valente  
+
+ Certos erros de linguagem que aparecem na mídia impressa,falada,audiovisual e mesmo na letra de músicas são rápida e inconscientemente assimilados e usados pelo público, que chega mesmo a considerá-los modelos. Freqüentemente ouve-se: " a TV diz assim", " o locutor fala deste modo" , " a letra da música é assim" ," o jornal publicou" , " vi no cartaz, no outdoor", etc. Infelizmente, esta é a realidade em que vivemos, tratando-se da relação público e linguagem dos meios de comunicação de massa. Diante desta real e preocupante situação, urge fazermos tudo o que está a nosso alcance para preservar a pureza desta língua tão bela e tão sonora, falada há quase um milênio, merecedora, portanto, de ser resguardada das distorções grosseiras a que é submetida,freqüentemente, na mídia. Vejamos alguns exemplos de incorreções colhidas aleatoriamente nos meios de comunicação e que poderiam ser facilmente sanadas: - "Faz o que eu digo, mas não faça o que eu faço." (Faze o que eu digo...) - "Obedeça seu velho. Gaste bem sua mesada." (Obedeça a seu...) - "Diga-me com quem andas e eu te direi quem és." (Dize-me com quem...) - "Fi-lo por que quilo." (Fi-lo porque quis) - "A nível de administração." (Em nível de ..) (Jorge S.Martins) Os cartazes, os anúncios, a imprensa, a letra de música populares refletem o desenvolvimento cultural da sociedade da qual todos fazemos parte. Cabe-nos denunciar os maus uso da língua nessas formas de comunicação, para que seus erros não venham a ser motivo de vergonha para nós. Entre as incorreções que destoam no uso da língua, são freqüentes pequenos descuidos, até perdoáveis, mas há casos de barbarismo contra a pureza da língua nos aspectos sintáticos, regenciais, ortográficos, sem falarmos de troca tão comum de tratamento, como também de organização ilógica de idéias, o que acarreta, freqüentemente, ambigüidades e interpretações errôneas de pensamento. A língua é uma força biológica: não se pode modificá-la com uma decisão política. Pode-se, quando muito, influenciar o uso. É uma função dos jornalistas, escritores e da mídia. Um bom uso mostra-se pela flexibilidade com que as palavras são aceitas. Todas as línguas estão repletas de palavras estrangeiras que foram naturalizadas. Os editores, os donos de televisão, jornais e os críticos literários não entenderam que houve uma revolução espiritual, que o nível geral subiu. Comunidade Lingüística da Língua Portuguesa: em que se luta para que o português seja reconhecido também como língua oficial da ONU: em que o português vai alcançando o 4º lugar entre as línguas mais falada no planeta. Não podemos deixar que ela se desfigure e se deturpe de maneira tão galopante, como está acontecendo nos meios de comunicação. Em geral, o erro lingüístico depõe contra quem o cometeu. Vamos preservar a "Língua nossa de cada dia". (\*) é professor, jornalista e escritor

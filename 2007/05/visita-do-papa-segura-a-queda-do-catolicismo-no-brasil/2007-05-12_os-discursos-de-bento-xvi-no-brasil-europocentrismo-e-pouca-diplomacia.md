@@ -1,0 +1,78 @@
+---
+title: OS DISCURSOS DE BENTO XVI NO BRASIL: EUROPOCENTRISMO E POUCA DIPLOMACIA
+date: 2007-05-12 21:00:00
+author: ruda.ricci
+debate: Visita do papa segura a queda do catolicismo no Brasil?
+slug: os-discursos-de-bento-xvi-no-brasil-europocentrismo-e-pouca-diplomacia
+status: publish 
+type: post
+---
+
+A visita de cinco dias do Papa Bento XVI ao Brasil foi marcada por erros diplomáticos e políticos de grande importância. Não em relação aos discursos recheados de dogmas moralistas, que também demonstraram dificuldades para compreender a moral dos jovens católicos brasileiros, mas principalmente por adotar uma postura política tipicamente européia da relação do Vaticano (e Igreja Católica) com o Estado brasileiro. Pior, desconsiderou a recém vitória da ala progressista da Igreja Católica no encontro da Conferência Nacional dos Bispos do Brasil (CNBB). Enfim, deixou de assumir seu papel de líder geral de uma instituição (que acolhe todas as vertentes que repousam em seu interior) e retornou a ser Joseph Ratzinger, filho de antigo oficial nazista e, mais importante, como prefeito da Congregação para a Doutrina da Fé, o título que o Tribunal da Santa Inquisição recebeu em 1908.   
+  
+Seus discursos e posturas no Brasil foram as mais agressivas desde que assumiu o papado. Revelaram seu profundo conservadorismo, certa dificuldade em transitar e negociar politicamente e uma maneira de se relacionar com chefes de Estado que se aproxima em muito da política do Vaticano na Europa.  
+  
+O sincretismo brasileiro e a relação da Igreja com movimentos sociais que demandam direitos foram absolutamente combatidos. Um dos momentos mais reveladores desta cruzada política foi a entrevista do Bispo Auxiliar do Ipiranga, Dom Tomé Ferreira da Silva, ao Globo News, um dia antes do encontro do Papa com a juventude católica. Perguntado sobre os movimentos de jovens que estariam presentes no evento, Dom Tomé procurou não responder até que, pressionado, citou os grupos Opus Dei e Movimento Carismático. Não citou, nem por uma vez, as pastorais sociais, numa declarada parcialidade política e ideológica.  
+  
+**Os discursos de duas Igrejas Católicas: a européia e a brasileira**  
+As disputas na Igreja Católica raramente são feitas a partir de discursos públicos. Herdeira de uma sabedoria política milenar, a Igreja sempre procurou acolher as diferenças e somente no limite do embate gerou cismas e expulsões.   
+  
+Mas a visita do Papa ao Brasil revelou um estilo absolutamente distinto desta tradição. Fez uma censura velada à declaração da CNBB, de 09 de maio, um dia antes da chegada do Papa.  
+  
+Na Declaração sobre o Momento Político Nacional, a CNBB retoma a opção pelos pobres e os princípios do Concílio Vaticano II onde, aliás, Ratzinger teve participação como peritus e apresentou proposta de realização de missas em língua local e não em latim. Em uma passagem inicial, a Declaração faz a seguinte avaliação:  
+  
+Graves carências de ordem ética e política na vida pública na América Latina e no Caribe continuam inviabilizando uma vida digna de grande parte da sua população, interpelando-nos a buscar a sua superação, animados pela presença de Jesus Ressuscitado. O mundo de hoje vive a época do mercado em que prevalece o negócio, desconsiderando o seu custo social e ecológico. O aquecimento global, preocupação séria e fundada dos povos, exige mudanças nos padrões éticos e um estilo de vida mais sóbrio. No Brasil, a busca de energia com base no etanol não pode fazer-se em detrimento do equilíbrio ecológico, da reforma agrária e da soberania alimentar, o que contrastaria com a fraternidade e os direitos fundamentais da pessoa humana.Os indicadores sociais revelam que, no Brasil, os pobres estão sendo favorecidos por programas sociais governamentais. Entretanto, temos necessidades urgentes de avançar no caminho do desenvolvimento com inclusão e com justiça social, no campo e na cidade, para assegurar condições de vida digna. Merecem atenção especial os grupos sociais vítimas de discriminação: os povos indígenas, os afrodescendentes, os idosos, os encarcerados, as crianças, os enfermos, a maioria dos aposentados do INSS, os migrantes e refugiados, entre outros. A desvalorização da dignidade humana e a falta de critérios evangélicos e éticos estão na raiz da banalização da vida, levando à violência crescente em nosso País. Voltamos a condenar todas as tentativas de legalização do aborto e de manipulação de embriões humanos para fins terapêuticos. É preciso defender a vida desde a aurora da concepção até o seu natural ocaso. (...) Urge uma Reforma Política que fortaleça a democracia direta e participativa, aperfeiçoe a democracia representativa e favoreça maior transparência do Poder Judiciário. Convidamos nossas comunidades eclesiais a participarem deste processo, conhecendo as propostas em questão, manifestando-se junto aos parlamentares, para que a Reforma Política se torne realidade.  
+  
+A Declaração faz uma nítida abordagem política, de denúncia da desigualdade social e em defesa da democracia direta e participativa.  
+  
+Em seu discurso de chegada ao Brasil, ainda no aeroporto de Guarulhos, Bento XVI, afirma, ao citar a V Conferência Geral do Episcopado Latino-Americano e do Caribe:   
+  
+A decisão, portanto, de realizar uma conferência essencialmente missionária bem reflete a preocupação do episcopado, e não menos a minha, de procurar caminhos adequados para que, em Jesus Cristo, os "nossos povos tenham vida", como reza o tema da conferência. Com esses sentimentos, quero olhar para além das fronteiras deste país e saudar todos os povos da América Latina e do Caribe, desejando, com as palavras do apóstolo, "que a paz esteja com todos vós que estais em Cristo" (1 Pt 5,14). (...) Estou certo que, em Aparecida, durante a Conferência Geral do Episcopado, será reforçada tal identidade, ao promover o respeito pela vida, desde a sua concepção até o seu natural declínio, como exigência própria da natureza humana; fará também da promoção da pessoa humana o eixo da solidariedade, especialmente com os pobres e os desamparados. A igreja quer apenas indicar os valores morais de cada situação e formar os cidadãos para que possam decidir consciente e livremente; neste sentido, não deixará de insistir no empenho que deverá ser dado para assegurar o fortalecimento da família -como célula mãe da sociedade; da juventude -cuja formação constitui fator decisivo para o futuro de uma nação- e, finalmente, mas não por último, defendendo e promovendo os valores subjacentes em todos os segmentos da sociedade, especialmente dos povos indígenas.  
+  
+Parece evidente o total desencontro de ênfases entre os dois discursos: um, citando de relance a condenação ao aborto e destacando o combate à desigualdade e a participação direta na política pública; o outro, destacando o combate ao aborto, a defesa de valores morais e citando, de relance os direitos de todos segmentos sociais, com preocupação maior em relação aos povos indígenas.  
+  
+O discurso do atual Papa é evidentemente europeu, pouco afeto à lógica social e à inserção da Igreja Católica em inúmeras tentativas das populações pobres em fazer valer suas denúncias de exclusão e busca de maior dignidade e inserção no mundo das decisões públicas. Esta inserção não se faz apenas por uma opção teológica, mas a partir de uma trajetória em que estar ao lado dos católicos significou compreender os motivos dos sofrimentos de tantos segmentos sociais, suas causas e as possibilidades abertas para sua superação.  
+  
+**A pressão política sobre Lula e manutenção do Estado Laico**  
+  
+Um dos momentos mais tipicamente europocêntricos da ação política de Bento XVI em sua primeira visita oficial ao Brasil foi sua conversa reservada com o Presidente da República. Um dia antes da chegada do Papa, Lula, a ministra Nilcéia Freire (Mulheres) e o ministro José Gomes Temporão (Saúde) já haviam cravado os limites de qualquer negociação com a Igreja Católica a respeito de temas relacionados com a saúde e aborto. Temporão chegou a afirmar que o aborto é um tema de deve ser tratado com delicadeza e não tenho percebido isso em alguns setores da igreja. Por seu turno, Lula afirmou que ninguém é a favor do aborto, mas a pergunta é se mulher deve ser presa e se deve  
+morrer.   
+  
+Ainda no avião que o trazia ao Brasil, o Papa afirmou ser favorável à excomunhão de políticos pró-aborto, se referindo à ameaça que envolve deputados mexicanos.   
+  
+A ofensiva maior, contudo, ocorreu logo no segundo dia de Bento XVI no Brasil. O Papa propôs uma concordata (onde a Igreja Católica se apresenta como instituição religiosa de direito público e estabelece uma convenção entre um Estado e a Santa Sé) com o governo brasileiro. Na prática, o governo brasileiro reconheceria a não existência de vínculo empregatício entre padre e Igreja; permissão de atuação em áreas indígenas; o reconhecimento de seminários religiosos como cursos regulares; vantagens na concessão de passaporte a missionários, além da obrigatoriedade do ensino religioso em escolas públicas. O Brasil não possui concordata desde 1822.   
+  
+Lula reafirmou o caráter laico do Estado brasileiro. O Itamaraty reagiu de maneira mais enérgica e afirmou que este acordo ofenderia a separação entre Estado e Igreja. O texto da proposta de concordata foi encaminhado oficialmente ao governo brasileiro em outubro do ano passado. Em 20 de março deste ano, o governo federal apresentou contraproposta.   
+  
+**Entre espetáculo e política**  
+A viagem do Papa ao Brasil revestiu-se de uma declarada intenção política, de aumento do poder da instituição católica frente às outras religiões. Declarações não tão acentuadas, mas não menos agressivas, indicaram a reprovação à Teologia da Libertação.   
+  
+Mas foram os eventos midiáticos que mais revelaram a lógica oficial de sua visita. Não o discurso, mas eventos pouco espontâneos, organizados como grandes demonstrações de peso social, adotando características de eventos pentecostais. O movimento católico pentecostal nasceu em Pittsburgh, na Universidade de Duquesne (dirigida pela Fundação Padres do Espírito Santo) em 1966. Dois teólogos leigos (Kefer e Storey) organizaram retiros espirituais, envolvendo jovens que entravam frequentemente em transe, gritando alto. Paralelamente, trabalhavam a superação da timidez, orando em voz alta e, em alguns momentos, rolando no chão. Rapidamente, o movimento declaradamente impressionista se espraiou. Em 1974, já eram contabilizados 2 mil grupos de oração desta natureza, envolvendo 350 mil pessoas. A hierarquia da Igreja Católica, à época, procurou impor uma orientação mais relacionada à tradição da instituição, enfatizando a participação na missa, a eucaristia e veneração a Maria. Os carismáticos, contudo, sempre priorizaram a figura de Jesus e sempre sentiram dificuldades para adotar ações ecumênicas. Pelo contrário, adotaram um discurso de orgulho cristão e expressões genéricas de alegria por ser católico, substituindo atos de reflexão sobre as imperfeições humanas. As orações passaram a ser permeadas por alegres conversas e o ritual é sempre mais importante que o  engajamento concreto no mundo social. Não existe arrependimento, mas um clima festivo, onde palmas, música, coros, conformam uma liturgia barulhenta, popular, voltada para o espetáculo.  
+  
+No encontro com jovens, na noite do dia 10, os telejornais procuraram extrair alguma reflexão deste evento, mas o que restou foram imagens de seminaristas dançando, jovens gritando e aplaudindo.  
+  
+A fala do Papa aos jovens também careceu de sentido organizativo ou de projeto coletivo. Foi genérico e, novamente, esteve centrado em temas comportamentais e morais. Em apenas duas passagens de um longo discurso, se referiu às obrigações políticas do Anúncio da Boa Nova. A passagem mais forte dizia:  
+  
+"Nossos bosques têm mais vida": não deixeis que se apague esta chama de esperança que o vosso Hino Nacional põe em vossos lábios. A devastação ambiental da Amazônia e as ameaças à dignidade humana de suas populações requerem um maior compromisso nos mais diversos espaços de ação que a  
+sociedade vem solicitando.   
+  
+Mas esta não foi a tônica. Foi o discurso genérico e voltado ao comportamento individual que sobressaiu, como é possível perceber nessas passagens:  
+  
+O Senhor aprecia, sem dúvida, vossa vivência cristã nas numerosas comunidades paroquiais e nas pequenas comunidades eclesiais, nas Universidades, Colégios e Escolas e, especialmente, nas ruas e nos ambientes de trabalho das cidades e dos campos. Trata-se, porém, de ir adiante. Nunca podemos dizer basta, pois a caridade de Deus é infinita e o Senhor nos pede, ou melhor, nos exige dilatar nossos corações para que neles caiba sempre mais amor, mais bondade, mais compreensão pelos nossos semelhantes e pelos problemas que envolvem não só a convivência humana, mas também a efetiva preservação e conservação da natureza, da qual todos fazem parte.  
+  
+Vivei com entusiasmo, com alegria, mas, sobretudo, com senso de responsabilidade. Muitas vezes sentimos trepidar nossos corações de pastores, constatando a situação de nosso tempo. Ouvimos falar dos medos da juventude de hoje.  
+  
+Revelam-nos um enorme déficit de esperança: medo de morrer, num momento em que a vida está desabrochando e procura encontrar o próprio caminho da realização; medo de sobrar, por não descobrir o sentido da vida; e medo de ficar desconectado diante da estonteante rapidez dos acontecimentos e das  
+comunicações.  
+  
+Registramos o alto índice de mortes entre os jovens, a ameaça da violência, a deplorável proliferação das drogas que sacode até a raiz mais profunda a juventude de hoje. Fala-se por isso, seguidamente, de uma juventude Perdida.  
+  
+Sede homens e mulheres livres e responsáveis; fazei da família um foco irradiador de paz e de alegria; sede promotores da vida, do início ao seu natural declínio; amparai os anciãos, pois eles merecem respeito e admiração pelo bem que vos fizeram. O Papa também espera que os jovens procurem santificar seu trabalho, fazendo-o com competência técnica e com laboriosidade, para contribuir ao progresso de todos os seus irmãos e para iluminar com a luz do Verbo todas as atividades humanas (cf. Lumen Gentium, n. 36).  
+  
+Mas, sobretudo, o Papa espera que saibam ser protagonistas de uma sociedade mais justa e mais fraterna, cumprindo as obrigações frente ao Estado: respeitando as suas leis; não se deixando levar pelo ódio e pela violência; sendo exemplo de conduta cristã no ambiente profissional e social, distinguindo-se pela honestidade nas relações sociais e profissionais.  
+  
+Tende, sobretudo, um grande respeito pela instituição do Sacramento do Matrimônio. Não poderá haver verdadeira felicidade nos lares se, ao mesmo tempo, não houver fidelidade entre os esposos. O matrimônio é uma instituição de direito natural, que foi elevado por Cristo à dignidade de Sacramento; é um grande dom que Deus fez à humanidade.  
+  
+A visita foi um ato político. Um ato racional, uma ofensiva de um chefe de Estado, de afirmação de sua força política. O Papa se revelou um dirigente político. Não por outro motivo, muitos teólogos, bispos e freis entrevistados ao longo de sua visita repisaram a falta de carisma e seu poder de instigar reflexões.   
+  
+Bento XVI, neste seu primeiro momento como liderança máxima da Igreja Católica institui um governo de tipo burocrático, racional. Os eventos públicos procuram destilar um clima mágico, comunitário, festivo, empolgante, mas não consegue romper a aparência de algo racionalmente planejado, organizado. Falta a espontaneidade da mística, da religação do cotidiano com o Divino. E faltou diplomacia.

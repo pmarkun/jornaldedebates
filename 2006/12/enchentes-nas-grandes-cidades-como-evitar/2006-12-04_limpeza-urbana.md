@@ -1,0 +1,11 @@
+---
+title: Limpeza Urbana
+date: 2006-12-04 22:00:00
+author: conceicao.andrade
+debate: Enchentes nas grandes cidades: como evitar?
+slug: limpeza-urbana
+status: publish 
+type: post
+---
+
+O nascimento de uma cidade, nem sempre foi planejada. Acontecia dentro dos interesses de cada habitante, em descobrir um espaço para construção de moradia ou comercial, que possibilitasse a sobrevivência com tranquilidade. Mas, a partir do aumento populacional, inclusive do êxodo rural, não foi previsto, ou, não quiseram dar importância à questão habitacional de forma organizada, e, como não houve limites, os Planos de Desenvolvimento Urbano criados recentemente, não puderam dar conta da situação de desconforto, que só será a longo prazo solucionado. Ainda, deve-se a um outro fator importantissimo, que é a questão educacional no âmbito da família. Dificilmente, a maioria dos pais sentam para ensinar educação doméstica a seus filhos, pois os mesmos nem sempre a tiveram dos seus próprios pais, além de muitos não terem pais. Assim, cria-se uma cultura de que na rua tudo é válido. Por outro lado, os governos municipais cobram taxa de lixo, e, se esquecem de desenvolver um Projeto junto às famílias sobre EDUCAÇÃO de HIGIENE E SANTIRÁRIA, para que as pessoas se conscientizem que estão fazendo mal a elas próprias, pois em uma enchente, são suas casas e seus móveis que ficam destruídos e não as Prefeituras, além do risco de vida que correm, devido a focos de bactérias e afogamentos. Portanto, tudo em uma cidade e em um país, existe a responsabilidade reciproca, ou seja, os governos têm obrigação de instrumentalizar as cidades, e, a população, preservar o que tem e cobrar o que não tem. O que não é mais válido na época atual, é ficar culpando uns aos outros, mas cada um procurar fazer a sua parte, lembrando que o Planeta Terra, em especial uma cidade, é como nossa casa, tem de tudo, mas a limpesa é imprescídivel para sentirmos bem e com saúde. A nova visão de uma oposição a tudo, não deve ser mais de COMBATER, mas de ANALISAR fundamentando o por quê de ser contra ou a favor a algo. Já se foi a época dos duelos e dos combates, agora estamos entrando na era de fazer oposição de ANÁLISE FUNDAMENTADA. Quem ganhará com isto? O País e a Nação, poque quer queiram ou não habita-se-se aqui.

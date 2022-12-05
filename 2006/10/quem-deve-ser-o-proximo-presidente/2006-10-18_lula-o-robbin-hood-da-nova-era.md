@@ -1,0 +1,13 @@
+---
+title: "LULA, o Robbin Hood da nova era???!!!
+date: 2006-10-18 21:00:00
+author: dalmy.solo
+debate: Quem deve ser o próximo presidente?
+slug: lula-o-robbin-hood-da-nova-era
+status: publish 
+type: post
+---
+
+**Trabalho desde os 06 anos de idade, sou de familia humilde e há mais de trinta anos acompanho a evolução política brasileira. Acompanho revistas, jornais, noticiários no rádio e na tv,  só estudei em escola pública e só agora tenho uma oportunidade de fazer  faculdade, sempre trabalhei duro para dar dignidade à minha família, e nunca precisei que nenhum político me sustentasse. Sempre fomos dominados por governos corruptos e que sempre venderam o país e a honra do nosso povo, e os grandes nomes da história política brasileira, morreram de forma misteriosa e covarde (Tiradentes, Getúlio, JK, etc.). Algum interesse sórdido houve nas mortes dessas grandes personalidades (que também não agradaram de um todo à sociedade brasileira, estrangeira e principalmente os vampiros da economia nacional) que fizeram o nosso País crescer e ajudaram na desigualdade social, que é de fato comprovado nos dias atuais. Infelizmente ainda vivemos num país onde à corrupção é manchete diária, sempre houve e sempre vai existir em todo mundo, mas não podemos esquecer que podemos mudar o rumo do nosso país, com um pouco de compreensão de cada brasileiro. Amigos já estou cansado de discursos bonitinhos e de fantoches com carinhas limpinhas, manipulados pela mídia e por aqueles que só tem interesses no crescimento do patrimônio pessoal. Precisamos deixar à hipocrisia de lado e dizer que não votamos numa pessoa que veio da classe pobre, que tem os seus defeitos como todo ser humano e vem sendo alvo de gozações e injúrias, porque ninguém acreditava nos atuais números positivos da economia brasileira  gerados pelo governo atual (que as vezes à parte podre da imprensa omite) que hoje pode se constatar pelos noticiários no Brasil e no exterior. Voto sim, mais uma vez no cidadão LULA, um brasileiro expert e inteligentíssimo, respeitado e homenageado em todo o mundo, com  erros sim, mas com maioria de acertos em pouco tempo de governo, e sei que muitos que se dizem intelectuais e se apoiam na idéia de analfabetismo, gerado por governos anteriores omissos, para esconder sua arrogância e preconceito diante de um  cidadão que venceu o medo e uma classe podre da sociedade brasileira. Pense bem, ainda há tempo de eliminarmos da política, essa corja de hipócritas, que dominaram o nosso povo por anos, e que o LULA, hoje chamado de corrupto por falsos moralistas, que então seja o Robbin Hood da nova era !!!xml:namespace prefix = o ns = "urn:schemas-microsoft-com:office:office" /**
+
+

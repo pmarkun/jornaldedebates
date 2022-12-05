@@ -1,0 +1,44 @@
+---
+title: Deus não é delírio.É linguagem!
+date: 2007-09-01 21:00:00
+author: nelson.valente
+debate: As religiões são nocivas ao bem-estar humano?
+slug: deus-nao-e-delirioe-linguagem
+status: publish 
+type: post
+---
+
+(\*) Nelson Valente  
+
+Já faz anos que exploro o mundo dos códigos e dos signos pelo estudo da linguagem, da comunicação, da psicanálise, do saber e de muitas outras formas. No entanto, nunca defini meu objeto ! Porque cada linguagem propõe um paradigma de mundo diferente. É o caso do cientista queniano - Richard Dawkins. Uma loucura anunciada!  
+
+ Quando jovem , meu professor de Semiótica, Naief Sàfady afirmou:  
+
+- Nascemos apenas com uma idéia na cabeça e não fazemos outra coisa senão desenvolvê-la ao longo de toda a nossa existência. Disse para mim mesmo:  
+
+- Será, então, que não é possível que haja uma mudança de vida ? Que reacionário ! Perto dos 59 anos de idade, entendi que meu professor tinha razão: de fato, durante toda a minha vida persegui tão-somente uma única idéia. O único problema é que não sei que idéia é essa !  
+
+ Creio que estou chegando lá. De tanto me dedicar à semiologia, estou cada vez mais convencido da possibilidade de que o mundo não existe, de que ele nada mais é do que um produto da linguagem.  
+
+ Houve momentos, no decorrer do século passado, que a filosofia se recusou a falar do mental sob o pretexto de que não podia vê-lo.  
+
+ Hoje em dia, com as ciências cognitivas, as questões do conhecimento - o que quer dizer conhecer, perceber, aprender ? - tornaram-se centrais. Os progressos da ciência permitem tocar naquilo que antigamente era invisível, o que obriga a Semiótica questionar: como é que a linguagem estrutura a percepção que temos das coisas ?  
+
+Nem sempre foi esse o caso. A linguagem de Pascal ou de Descartes é simples e corriqueira. O próprio Bergson que trabalha com conceitos difíceis,fala sem tecnicismos. Na segunda metade do século passado, as coisas mudaram. Por que o francês de Lacan parece difícil ? Porque sua sintaxe não é francesa, é alemã ! De fato, nos anos 60 houve uma verdadeira invasão alemã na filosofia francesa. Daí a ruptura entres os dois continentes. Isso criou uma barreira enorme entre a filosofia insular e a continental. Os anglo-saxões, Locke e Berkeley, falam como todo mundo. Wittgenstein, quando começou a pensar em inglês, utilizava uma linguagem simples. Eis a razão por que os americanos gostam tanto de Gramsci - porque ele não se valia do jargão alemão - e por isso eles não se deixaram contaminar pela fenomenologia, por Heidegger, que lhes é incompreensível. Todavia , cederam diante dos franceses germanizados, que influenciaram sua literatura e, depois, sua filosofia. Já é difícil traduzir Lacan em "francês", imagine em inglês ! No Brasil também aconteceu a mesma coisa: basta que um termo seja alemão para que seja considerado com seriedade.   
+
+A língua é uma força biológica: não se pode modificá-la com uma decisão política. Pode-se, quando muito, influenciar o uso. É uma função dos jornalistas, escritores e da mídia. Um bom uso mostra-se pela flexibilidade com que as palavras são aceitas. Todas as línguas estão repletas de palavras estrangeiras que foram naturalizadas.  
+
+Os jornais brasileiros (alguns) nos dizem com freqüência que Michael Schumacher, da Fórmula I - pegou a "pole position", um termo inglês inútil, pois pode dizer perfeitamente que chegou em primeiro lugar ou qualquer coisa parecida. Certa vez, li num jornal que Schumacher, tinha conseguido a "pool position". Ele devia estar, então, na piscina!  
+
+Hoje em dia, as pessoas falam sua língua nativa mais corretamente, lêem mais jornais, mais livros. Isso não significa que a humanidade esteja melhorando e tampouco quer dizer que há menos banalidades, esterótipos e bobagens.  
+
+Os editores, os donos de televisão, jornais e os críticos literários não entenderam que houve uma revolução espiritual, que o nível geral subiu.  
+
+Os franceses fazem de conta que brigam com o inglês, mas têm medo mesmo é do alemão. Desde a queda de Berlim, a Europa do Leste transformou-se num bolsão de poliglotismo alemão e há muita probabilidade de que o alemão se imponha na Europa! Nunca, no mundo, alguém conseguiu impor a língua estrangeira dominante. Os romanos foram mestres do mundo, mas seus eruditos conversavam em grego entre si. O latim se tornou a língua européia quando o império romano desmoronou. No tempo de Montaigne, o italiano era o vetor da cultura. Depois, durante três séculos, o francês foi a língua da diplomacia. Por que o inglês, hoje? Porque os Estados Unidos ganharam a guerra e porque é mais fácil falar mal o inglês do que falar mal o francês ou o alemão. O que não impede que os franceses falem de uma "colonização" de sua língua pelo inglês.  
+
+  
+
+  
+
+\* é professor universitário, jornalista e escritor  
+

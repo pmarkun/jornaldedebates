@@ -1,0 +1,11 @@
+---
+title: Não, nunca pôde nem nunca poderá....
+date: 2006-11-04 21:00:00
+author: diego.mello
+debate: A pena de morte é justa?
+slug: nao-nunca-pode-nem-nunca-podera
+status: publish 
+type: post
+---
+
+A pena de morte sempre gerará polêmica em qualquer lugar. Só Deus pode dar e retirar a vida de alguém. Nunca será justa uma pena tão grave, pois as penas não são feitas para eliminar os inimigos, sim para educá-los e restabelecê-los na sociedade. É certo que Saddam Hussen tem uma lista de crimes imperdoáveis nas costas, mas será que Bush, o salvador do mundo, teria menos? Os E.E.U.U. sempre estiveram envolvidos nas maiores guerras, sempre investindo e "colocando lenha na fogueira". Então que moral tem este país para julgar assassinos? Um país que espalha a guerra em torno do mundo, um país que espalha a poluição em torno do mundo a favor de sua economia. Os Estados Unidos são líderes em várias coisas boas e ruins, os bons se resumem aos números, economia e qualidade de vida, os ruins são a arrogância, a violência, a mania imperialista e a forma como desrespeita tudo e todos. A União Européia já se pronunciou contra a pena de morte, os advogados do genocida já recorreram a decisão, mas será que o tribunal norte-americano tem competência e jurisdição sobre os crimes de Saddam? Não seria competente uma representação de vários países? Bem, os E.U.A. já tem fama de colocarem o seu grande nariz onde não deve, o Tio Sam mantém uma prisão em Cuba pra presos de guerra, contrariando tratados internacionais de direitos humanos. Então eu pergunto, seria um criminoso capaz de julgar outro? Não, muito menos eles, que invadiram o Iraque, destruíram o país, mantêm seus exércitos lá, matando e morrendo por uma guerra sem fim e sem objetivo, na verdade sem objetivo distinto. O Iraque foi invadido sobre o pretexto de buscas pra evitar a fabricação de armas químicas e até hoje, nada. A verdade é evidente, o oriente médio é riquíssimo em petróleo e o Iraque, um país cercado de inimigos, era o país mais fácil de ser dominado, doce ilusão. Nos últimos 5 anos os Estados Unidenses atacaram o Iraque e o Afeganistão, pretende entrar no Irã, mas têm medo pois estão enfraquecidos com as outras guerras. Quem será a próxima vítima deste maléfico império? Espero que não haja.

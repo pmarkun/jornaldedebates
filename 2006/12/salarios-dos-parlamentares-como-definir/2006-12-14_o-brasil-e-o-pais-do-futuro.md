@@ -1,0 +1,11 @@
+---
+title: O Brasil é o país do "futuro"...
+date: 2006-12-14 22:00:00
+author: rommel.feitosa
+debate: Salários dos Parlamentares: como definir?
+slug: o-brasil-e-o-pais-do-futuro
+status: publish 
+type: post
+---
+
+Assim dizia o saudoso Renato Russo da Legião Urbana... e ainda dizia mais: "em toda e qualquer situação, eu quero tudo pra cima, pra cima...". Aqui estamos nós, agora diante da tela do computador expressando indignação, raiva, tristeza, revolta, traição... a propósito, que ambiente "pesado" esse não! É tanto sentimento ruim sendo literalmente exposto, tantos maus-fluidos... Mas é isso, faz parte... A política, o futebol e a bunda das mulatas são nossos maiores orgulhos nacionais... Lembram de seis meses atrás quando viemos aqui expressar esses mesmos sentimentos com relação aos jogadores de futebol que nos envergonharam na copa do mundo? Que não deram o mínimo de valor ao patriotismo do povo de seu país e aos tantos bons pensamentos e desejos a eles manifestados? E não vamos nem lembrar da Copa da França... não, vamos não... Agora vamos voltar a falar desse absurdo que está acontecendo com a política brasileira. Essa semana mesmo a CPI (Comissão da Pizza Imoral) dos Sanguessugas completou 06 (seis) meses de "trabalho" sem nenhum, nenhum, resultado satisfatório... o olha que atravessou numa boa uma eleição presidencial... éééééé... Mas esse espódio pe apenas mais um dessa novela indecente... Gente, é só observar a história da política brasileira, nem precisa ir muito longe não, falo de história recente mesmo, pra qualquer um de qualquer lugar do mundo se sentir envergonhado... é tanta sacanagem, tanta imoralidade, tanto desrespeito... mas sejamos francos... tudo isso tem o nosso aval... dos 16 aos 65 anos nós somos obrigados a, de qualquer forma, compactuar com tudo isso que acontece. Não da gente... começo a pensar mas me sinto acoverdado em só pensar e, no máximo, escrever aqui... e vê que quando Renato Russo falava do "PAÍS DO FUTURO" ele esqueceu de ressaltar que esse "futuro" não necessariamente terá que ser belo... esse "futuro" pode ser bom ou ruim... e pelo que parece, pelo que estamos vivendo e presenciando e participando será !@#$%¨&\*()... alguém se habilita a prevê o dia de amanhã...?

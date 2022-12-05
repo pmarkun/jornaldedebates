@@ -1,0 +1,11 @@
+---
+title: Bandidos e Pilantras não moralizam nada.
+date: 2007-01-31 22:00:00
+author: edson.felisberto
+debate: Câmara e Senado: presidentes vão moralizar o parlamento?
+slug: bandidos-e-pilantras-nao-moralizam-nada
+status: publish 
+type: post
+---
+
+Olhe bem para a cara deles, cada um mais safado que o outro, cada um vai ter a morte que merece e vão queimar no fogo do inferno. Essa cambada de ladrões que impesteia Brasília, Torço para que dê um tornado bem em cima dos tres poderes e leve essa cambada todos para os ares. Esse será o dia mais feliz de minha vida. Já pensou ver ACM e Neto, Rabelo, Calheiros, Collor, Palocci, e tantos outros sendo lançados pelos ares. E não é só isso não, tem que morrer tambem por que essa raça ruim de políticos teria que ter morrido no ninho, já que as mães deles deviam ser umas Galinhonas chocando esse ovos estragados. Povo acorde vamos reagir contra essa corja, de bandidos que estão saqueando o Brasil. Será que não vai mais aparecer outra Dona Rita só que com uma mira melhor? Eu torço para ouvir uma notícia assim. Este dia vai ficar para a história o povo reagiu e tomou conta de Brasília. Os políticos estão todos presos e os bens confiscados pelo povo, os que não aceitaram foram executados com um tiro na testa pelo crime de corrupção contra a Pátria. O povo toma conta de Brasília porque não restou um só que fosse honesto e que tenha provado seu amor pelo Brasil. O povo tambem pegou o Juiz lalau e colocou ele para cumprir pena na pior favela do Brasil onde não tem água tratada e o esgoto está a céu aberto, e para fazer companhia a ele foi mandada a Juiza que permitiu que ele cumprisse a pena em casa. Teve tambem um morador do Palace dois, que conseguiu fazer justiça contra o Sérgio Naya e ele está morando agora no inferno. A Gorjina aquela do golpe no INSS, foi mandada para aquela ilha onde só tem Jararaca amarela, vai ser uma briga boa de cobra contra cobra. OAB foram todos jogados em alto Mar com tubarões e disseram quem for honesto vai sobreviver. O novo direitos humanos foi cuidar primeiro das vítimas. Pare pra pensar nessas notícias e vejam se elas não são boas. Se alguem quiser concretiza-las antes de eu morrer eu vou ficar muito feliz.

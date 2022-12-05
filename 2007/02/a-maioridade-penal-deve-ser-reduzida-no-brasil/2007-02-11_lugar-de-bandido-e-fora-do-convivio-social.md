@@ -1,0 +1,11 @@
+---
+title: Lugar de bandido é fora do convivio social.
+date: 2007-02-11 22:00:00
+author: augusto.langeloh
+debate: A maioridade penal deve ser reduzida no Brasil?
+slug: lugar-de-bandido-e-fora-do-convivio-social
+status: publish 
+type: post
+---
+
+O indivíduo sabe ou não sabe viver "em sociedade". É ou não é capaz de se ajustar "às regras" "às convenções"... Se por deficiência de educação ou se, pelo exemplo que recebe "em casa", pai e/ou mãe bandido(s); falta de afeto, etc. se desenvove como desajustado e comete crimes (seja sóbrio, bêbado, drogado ou suas combinações) é um bandido, um criminoso e deve ser retirado do convívio social. Recluso é submetido a tentativa de "ressocialização". Se reincidir, não deve mais ser liberto. Vai viver numa colonia penal, com uma bolota de 50kg de ferro preso a uma das pernas (poderia ser algo tecnológico como a implantação de um "chipe", mas onde? Os "caras" são capazes e se mutilar para arrancá-lo) e deverá trabalhar para merecer sua alimentação diária. Vai quebrar pedras, p.ex. basalto, granito, arenito numa pedreira, fabricar tijolos, plantar e colher sua alimentação, etc. Há muitos trabalhos estupidamente pesados, feito por trabalhadores assalariados/mal remunerados, que poderiam ser promovidos a guardas e avaliar com precisão se o trabalho está sendo feito de acordo ou se o prisioneiro está fazendo corpo mole... Esse "negócio" de prisioneiro bandido tomar banho de sol, jogar bola, comer "quentinha", ter direito a visitas, inclusive íntima (prá procriar mais desajustados) e dispor de tempo livre para fabrcar "estiletes" e outras armas, tem que acabar. É um absurdo um prisioneiro custar aos cofres da sociedade mais de tres salários mínimos! Mais do que recebe a maioria dos trabalhadores e dos velhinhos aposentados do INSS. Isso é justiça? E não sei não se muitos deles não fazem por justificar a sua morte: toda vez que a pena a qual forem condenados superar a sua expectativa de vida... Por que manter um indivíduo preso até o fim sua vida, às custas da sociedade? Seria uma espécie de "eutanásia social"! Imagino que sabendo o que o aguarda na cadeia, a delinqüência deve diminuir. E não pode ter difereça no tratamento de bandidos denominados de "colarinho branco"...

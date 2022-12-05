@@ -1,0 +1,25 @@
+---
+title: Educação é a solução
+date: 2007-02-11 22:00:00
+author: luiz.soares3
+debate: A maioridade penal deve ser reduzida no Brasil?
+slug: educacao-e-a-solucao
+status: publish 
+type: post
+---
+
+    Reduzir a maioridade penal, num sintema prisional como é o nosso, lógico que não seria a solução para problema algum . Os condenados saem da prisão pós graduados em  crime. As "autoridades" encontraram nisso, foi uma saída fácil,  uma maneira de tentar "lavar as mãos" . Como se dissessem à  
+sociedade : " Viram como somos rígidos? Fizemos a nossa parte, ou pelo menos propusemos". Além do fato de que, se aprovada a redução da maioridade penal, o sistema penitenciário terá aumentado exponencialmente o seu contingente, o que interessa e muito aos grupos que se beneficiam das  verbas direcionadas para esse fim .  
+  
+    Aumentar o ostensivo policial nas ruas com blitz por toda parte com o objetivo maior de achacar dinheiro dos motoristas com o IPVA atrasado ( E no Rio de Janeiro isso é quase praxe)  muito menos . Os bandidos sempre sabem, antes, onde as blitz serão ou estão instaladas . O que resolve de fato o  
+problema é  uma boa EDUCAÇÃO geral . É claro que nada justifica o que os assassinos daquela criança fizeram. Mas se analisarmos de maneira inteligente, isentos do ódio natural que estamos sentindo, concluiremos que aqueles garotos também são vitimas. Suas vidas foram  arruinadas. Se lhes  
+tivesse sido oferecida uma boa  EDUCAÇÃO e condições dignas de cidadania , eles  certamente não teriam causado tanto mal, nem a eles próprios.  
+  
+    O programa Fantástico da Rede Globo mostrou ontem uma matéria muito comovente  com os pais do menino João , mas o programa  teve uma seqüência que reflete exatamente o que acontece no nosso país . Lembram-se como terminou o programa? Futebol, Carnaval,Alegria minha gente!!!!  E é  
+exatamente com isso que essas "autoridades"  contam , alguns devem até pensar: "Ainda bem que essa tragédia aconteceu perto do carnaval", que na  
+<!--
+D(["mb","verdade funciona como uma over dose de anestesia no povo , depois , um<br />campeonato brasileiro aqui um jogo da seleção acolá , feriados em cima de<br />feriados para o sujeito se esquecer do mundo e enfiar a cara na birita . E a<br />zorra continua. &quot;Resolvida&quot; então mais essa questão , a população já<br />acalmada e esquecida , (de quantas outras tragédias já não falamos mais?) ,<br />eles &nbsp;poderão então retomar com maior tranquilidade , transitando no meio do<br />fogo cruzado das grandes cidades em seus carros blindados e seguranças,<br />pagos por nós simples mortais, &nbsp;pautas &quot;mais importantes&quot; como o Aumento dos<br />próprios salários e outras matérias afins .<br /><br />&nbsp;Vamos debater mais e cobrar SEMPRE!!! não vamos deixar que este<br />acontecimento horrendo se torme mais uma tragédia esquecida e fomento para<br />os interesses dessa corja , que nós, direta ou indiretamente colocamos &nbsp;no<br />poder.<br /><br /><br /><br /><br /><br />Luiz Silveira Soares<br /><br />Barra da Tijuca -RJ.<br /><br />21 9971b 6420<br /><br /><br /><br />----- Original Message -----<br />From: &quot;Gabriela Nardy&quot; &lt;<a onclick\u003d\"return top.js.OpenExtLink(window,event,this)\" href\u003d\"mailto:gabriela@jornaldedebates.com.br\">gabriela@jornaldedebates.com<wbr />.br</a>&gt;<br />To: &lt;<a onclick\u003d\"return top.js.OpenExtLink(window,event,this)\" href\u003d\"mailto:luarteshows@terra.com.br\">luarteshows@terra.com.br</a>&gt;<br />Sent: Monday, February 12, 2007 8:59 AM<br />Subject: Educação é a solução<br /><br /><br />Olá Luiz,<br /><br />Sou editora do Jornal de Debates (<a onclick\u003d\"return top.js.OpenExtLink(window,event,this)\" href\u003d\"http://www.jornaldedebates.com.br\" target\u003d\_blank>www.jornaldedebates.com.br</a>), um site<br />colaborativo que propõe debates semanais sobre temas polêmicos. Vi no<br />jornal O Estado de S. Paulo de hoje (segunda-feira 12/02), na sessão<br />Fórum dos Leitores, um e-mail seu falando da maioridade penal.<br />Gostaria de convidá-lo a escrever no jornal sobre esse tema, ou mesmo<br />",1]verdadeverdade funciona como uma over dose de anestesia no povo , depois , um campeonato brasileiro aqui um jogo da seleção acolá , feriados em cima de feriados para o sujeito se esquecer do mundo e enfiar a cara na birita . E a zorra continua. "Resolvida" então mais essa questão , a população já  
+acalmada e esquecida , (de quantas outras tragédias já não falamos mais?) , eles  poderão então retomar com maior tranquilidade , transitando no meio do fogo cruzado das grandes cidades em seus carros blindados e seguranças,  
+pagos por nós simples mortais,  pautas "mais importantes" como o Aumento dos próprios salários e outras matérias afins .  
+  
+    Vamos debater mais e cobrar SEMPRE!!! não vamos deixar que este acontecimento horrendo se torme mais uma tragédia esquecida e fomento para os interesses dessa corja , que nós, direta ou indiretamente colocamos  no poder.

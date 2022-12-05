@@ -1,0 +1,11 @@
+---
+title: Hoje o mundo vive uma crise de valores
+date: 2008-11-01 09:42:25
+author: Victor da Silva Pinheiro
+debate: Quais os verdadeiros valores da sociedade?
+slug: hoje-o-mundo-vive-uma-crise-de-valores
+status: publish 
+type: post
+---
+
+Civilizações antigas, como a Inca, a Maia, a Asteca, a própria civilização egípcia, romana, grega, dentre outras, no seu período clássico, vivia o auge dos valores, não tinham a mesma tecnologia da sociedade atual, mas tinha o mais importe: o valor como prioridade. Hoje muitas pessoas se enganam achando que vivemos o auge da civilização por causa da tecnologia, mas vivemos uma crise de valores, e na questão tecnológica, há quem diga que a civilização Atlântida teve uma tecnologia demasiado superior; Aliás, a causa da decadência da civilização atlante é que eles deram mais importância ao fator tecnológico do que ao espiritual. E o que é ser espiritual? Muitas pessoas têm uma imagem deturpada e pensam que pessoas espirituosas são aquelas que praticam uma pseudo-religião e tem uma calma piegas. Muito pelo contrário, pessoas espirituosas são aquelas que têm uma moral, uma ética, lá em cima e luta pra manter essa moral. Dão mais valor ao ser do que ao ter. São essas pessoas que constroem a sociedade. Mas, a maioria das pessoas, apesar de terem almas boas, estão mergulhadas num conformismo e são fracas de espíritos e a sociedade se encontra como a vemos. E essas pessoas são fácies de serem manipuladas. Platão nos conta no seu mito da caverna (aliais escrevi um texto sobre o mito da caverna e está no site) que escreveu no capítulo VII do livro A República, diz que a humanidade em sua maioria está acorrentada e está sendo controlada pelos amos da caverna. E só os filósofos, não falo dos filósofos diplomados, mas os de natureza própria são capazes de libertar essa humanidade, pois de valor e virtude, eles entendem bem. E os primeiros a serem libertados dessa prisão da caverna para conhecer o mundo da filosofia, essas pessoas são os idealistas, aqueles que têm um ideal, mas são como o cristal, brilham mas se quebram com facilidade. E a filosofia vem pra proteger esse ideal. Levantemo-nos de nossas cadeiras, quebramos as nossas correntes e seguimo-nos em frente para o caminho da sabedoria, pois, só a sabedoria liberta.

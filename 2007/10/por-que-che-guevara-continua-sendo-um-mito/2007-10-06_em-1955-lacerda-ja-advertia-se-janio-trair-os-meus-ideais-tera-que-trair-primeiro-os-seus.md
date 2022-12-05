@@ -1,0 +1,162 @@
+---
+title: Em 1955, Lacerda já advertia: -   "Se Jânio trair os meus ideais, terá que trair primeiro os seus".
+date: 2007-10-06 21:00:00
+author: nelson.valente
+debate: Por que Che Guevara continua sendo um mito?
+em_resposta: CHE: -   "Vim ao Brasil rever o meu bom amigo, Presidente Jânio Quadros." 
+em_resposta_user: nelson.valente
+slug: em-1955-lacerda-ja-advertia-se-janio-trair-os-meus-ideais-tera-que-trair-primeiro-os-seus
+status: publish 
+type: post
+---
+
+  
+
+ (\*) Nelson Valente  
+
+  
+
+Lacerda e Jânio nunca chegaram a ser amigos íntimos. Como governador da Guanabara e presidente da República, os dois homens públicos tentaram um caminho comum. A ruptura provocou uma crise nacional que desaguaria na Revolução de 64.  
+
+Em 1955, Lacerda já advertia: - "Se Jânio trair os meus ideais, terá que trair primeiro os seus".  
+
+O que atraiu Lacerda foi o poder que Jânio possuía de conseguir interessar um grupo de políticos num problema, a não ser quando este problema influía ou eleitoralmente ou servia para agradar a alguém que já estava ou que ia para o poder.  
+
+Jânio foi um dos raros homens públicos brasileiros, que tinha gosto pela política e também um interesse enorme pelos problemas, tinha apetite pelo poder, era voraz no desejo de fazer as coisas e de vê-las feitas.  
+
+Lacerda esperava que ao tomar posse, Jânio teria um grande Ministro - um excelente programa de governo, pois, ele trazia esta fama de São Paulo. No entanto, nomeou um ministério que, no geral, com algumas exceções, era bastante medíocre.  
+
+Para Jânio, o Brasil como um todo, era um objeto em sua mão e não propriamente uma nação que ele conhecesse. Tinha uma inexperiência quase infantil do Brasil.  
+
+Jânio começou mal. A impressão que causava no primeiro momento do governo foi a de um homem que tinha sido eleito, que tinha tudo para ser Presidente da República e que uma vez eleito pergunta:  
+
+- "Bem, agora o que se faz quando se é Presidente da República?"  
+
+Lacerda percebe que Jânio não sabia governar em regime democrático.  
+
+Jânio começou a fazer logo no início do seu governo reuniões de governadores de cada área. Fez no Amazonas, Nordeste e no Rio de Janeiro onde recebeu dos governadores memorandos com um dossiê mostrando os problemas principais. Ele lia e ouvia com extrema seriedade, atenção e Lacerda ficou certo de que interessava pelos problemas. No intervalo de uma dessas reuniões, Lacerda vai com Jânio ao Palácio das Laranjeiras, e lá começa uma conversa estranha: "Carlos, você está conseguindo governar a Guanabara?"  
+
+Lacerda disse: - "Bem, comecei outro dia e ainda estou  
+
+fazendo a Constituição."  
+
+Jânio replica: - "Pergunto se você consegue fazer alguma  
+
+coisa com esta Assembléia".  
+
+Para Lacerda seriam as primeiras insinuações de golpe muito embora, naquele momento não lhe ocorrera esta idéia, principalmente quando Jânio disse: - "Eu tenho a impressão de que vai ser muito difícil governar o Brasil com este Congresso."  
+
+Esta conversa ficou no espírito de Lacerda como uma espécie de sombra: não ainda uma assombração, mas uma sombra.  
+
+Carlos Lacerda esperou os primeiros tempos do governo Jânio mas nada acontecia. Só saíam: regulamentação do comprimento dos maiôs das misses, a proibição das brigas de galo, e uma espécie de exasperação crescente, uma impaciência com a imprensa.  
+
+Certa altura, Lacerda sente que alguma coisa de muito estranha estava se preparando. Certas providências. O desprezo dele pelo Congresso e as relações ruins deterioradas desde o início. Ele não se dignou mandar ao Congresso uma só mensagem como uma só lei de relativa importância. O Brasil carecia de leis mas na verdade Jânio não tinha se preparado para assumir a Presidência embora a almejasse desde que foi eleito vereador. Ele chegou ao governo como se aquilo fosse um prêmio da loteria, uma coisa inteiramente inesperada.  
+
+Lacerda achou que era dia e momento de se colocar as "cartas na mesa", de obrigá-lo a se explicar ou então... Ele telefona à D. Eloá tratando assuntos relativos à Legião Brasileira de Assistência e aproveita para lhe pedir que pessoalmente pedisse ao Jânio para lhe telefonar mas não queria interferência dos assistentes de gabinete.  
+
+Logo em seguida Lacerda recebe um telefonema de Brasília dizendo que o presidente ia mandar um avião para buscá-lo no dia seguinte.  
+
+Lacerda vai à Brasília e desembarca estando à sua espera no aeroporto o General Pedro Geraldo, Chefe da Casa Militar. Tomaram o automóvel e no caminho Pedro Geraldo conta a Lacerda que naquela manhã esteve no palácio, o ministro Che Guevara, que iria ser condecorado com a Ordem do Cruzeiro do Sul por Jânio no dia 25/08/1961.  
+
+Lacerda pensativo, a caminho do palácio, ouviu mas achou que as preocupações que o levaram até lá eram mais graves do que a condecoração de Che Guevara. Lacerda fica no palácio onde um quarto preparado já o aguardava.  
+
+Jânio o recebe numa salinha e começam uma conversa, mais ou menos anodina.  
+
+Após o jantar Lacerda diz a Jânio que quer conversar sé­rio pois, acha sua conduta estranha e gostaria de saber quais são realmente as suas intenções. Por outro lado Lacerda se encontrava numa situação moral muito difícil, pois sentia uma certa dose de responsabilidade na sua eleição. Gostaria de saber o que pretende fazer, pois, até aquele momento a não ser na pasta da Fazenda, Jânio não havia realizado nada.  
+
+Jânio o interrompe e o convida para ir ao cinema. Desceram e foram ao cinema de poltronas brancas, onde no braço das poltronas já estavam cumbucas de pipoca e castanha de caju. Jânio mandou buscar uísque e começaram a projetar o filme do Jerry Lewis. Jânio reclamou: - Tira esse palhaço! Ponham um filme de cowboy".   
+
+Lacerda pensa no que tem a falar com Jânio e não presta atenção ao filme. Tenta falar com Jânio que pretende renunciar ao governo, mas Jânio lhe diz que após o filme conversarão.  
+
+A uma certa altura ele chamou um daqueles contínuos e falou qualquer coisa baixo com ele. O contínuo retirou-se, mas voltou e disse: - "O ministro Horta está lhe chamando no telefone".  
+
+Lacerda desconfia e teve a impressão que Jânio mandou o contínuo ligar ao Ministro.  
+
+Na verdade Jânio queria ficar livre de Lacerda e de sua conversa. Ele volta e diz ao Lacerda que o Ministro Horta quer  
+
+que ele vá ao seu apartamento para uma conversa.  
+
+Lacerda diz: - "Jânio, não vim aqui falar com o Horta.  
+
+Não tenho nada para falar com ele. Vim aqui falar com você. Vim falar de governador a presidente".  
+
+Jânio disse: - "Mas gostaria que você fosse falar com ele. Me faça este favor".  
+
+Lacerda respondeu: - "Eu vou, mas volto".  
+
+E ele: - "Depois volte".  
+
+Lacerda vai ao apartamento de Horta para a conversa in­cumbida por Jânio. 0 Ministro Horta mostra a Carlos Lacerda a carta renúncia em 20/08/1961 com a data de 25/08/1961 e explica a Lacerda que seria uma tentativa de chantagear o Congresso Nacio­nal para as profundas reformas que Jânio necessitava para gover­nar o país.  
+
+Lacerda perplexo diante da proposta de renúncia no papel pensou: "Estou dono de um segredo que ainda não decifrei, mas desconfio."  
+
+Em dado momento Lacerda murmurou: "Venho conversar com o Presidente da República e ele me leva para comer pipocas no cinema".  
+
+Lá para as tantas, Horta e Lacerda berravam dentro do quarto, pois Horta estava ficando embriagado com a segunda gar­rafa de uísque. Aí Lacerda disse:  
+
+- "Horta, você está esquecido que es­tamos aqui aos berros num hotel em que se ouve tudo de ponta a ponta , e eu não sei quem está no quarto ao lado, nem quem está nesse andar. Estamos aqui, o Ministro da Justiça do Governo da República e o Governador do segun­do estado do Brasil, discutindo como se fossem dois estudantes completamente irresponsáveis a política da UNE ou qualquer coisa até menos importante do que isso. Parece uma discussão de diretório acadêmico! Ou nem isso! Primeiro, acho que você não está num bom estado para conversas. Compreendo uma boa prosa em torno de um copo de uísque, mas esse não é o tipo de conver­sa a ser feita à base do uísque, não; nem às 3 horas da manhã. 0 presidente, evidentemente, evitou conversar comi­go e mandou você. Mas não aceito in­termediário para essa conversa. Não fiz uma ameaça vã de renúncia, como ele fez tantas. Tenho duas posições a tomar: ou renuncio, amanhã, ou vou hoje, de manhã para o Rio denunciar ao país o que vocês estão fazendo."  
+
+Alarmado, Horta disse a Carlos Lacerda que o presidente do Senado Auro de Moura Andrade já tinha conhecimento da carta­ renúncia e não havia nenhuma conspiração governamental.  
+
+De volta ao Rio de Janeiro, Lacerda põe em prática suas ameaças e vai para a televisão denunciar o que estava acontecendo em Brasília - uma conspiração.  
+
+No dia 25/08/1961 o Ministro da Justiça Oscar Pedroso Horta ligou para Carlos Lacerda dizendo-lhe o seguinte: - "Estamos apenas lhe comunicando, em nome do Presidente da República Jânio Quadros, que acabo de entregar ao Congresso a carta-renúncia do Presidente" - e desliga o telefone.  
+
+Ingenuidade ou má fé?  
+
+Jânio sempre acreditou na má fé de seu Ministro da Justiça, Oscar Pedroso Horta que manipulava politicamente com Carlos Lacerda e Auro de Moura Andrade para depor Jânio da Presidência da República.  
+
+Naquela manhã de 25 de agosto, Jânio Quadros inclinou-se diante da Bandeira Nacional - O Batalhão de Guardas Presidencial formava na Esplanada dos Ministérios, em homenagem ao Dia do Soldado. Ele já havia tomado uma decisão irrevogável: iria renunciar à Presidência da República, para qual havia sido eleito, alguns meses antes, com a esmagadora avalancha de seis milhões de votos. Há pouco mais de sete meses de governo, havia tomado posse, numa solenidade realizada bem próxima daquela, como sucessor do Presidente Juscelino Kubistchek. Ele era o 25º homem a ocupar a chefia do governo. E Seria o primeiro a renunciar.  
+
+Aquele mês de agosto, que depois se consagraria como o mais azarento mês para a política brasileira, começara mal: e Governador Carlos Lacerda, que fora grande aliado de Jânio na campanha eleitoral, não poupava de críticas e de ataques ferozes.  
+
+O governador retirava do presidente o aval de confiança, com que o credenciara a candidato na Convenção da UDN, quando foram esmagadas as justas aspirações do Sr. Juracy Magalhães.  
+
+Assim como acontecera com o governo Café Filho, o governador da Guanabara logo depois da posse do presidente pelo qual tanto lutara voltava-se contra ele, no propósito de demoli-lo. A ruptura entre os dois verificara-se poucas semanas após a posse de Jânio na Presidência da República.  
+
+O governador Carlos Lacerda não se conformava sobretudo, com a nova orientação da política externa que o presidente clas­sificava de independente, com a abertura no rumo do estabeleci­mento das relações diplomáticas com a Rússia e na direção de uma reaproximação com Cuba. As forças de esquerda tendo à frente o próprio Luiz Carlos Prestes não regateavam aplausos às novas diretrizes da política exterior, que o Chanceler Afonso Arinos executava a frente do Itamaraty, por delegação expressa do próprio Jânio.  
+
+A chamada ala conservadora da UDN logo se voltou para o exame das conseqüências de um ato revolucionário dessa natureza, capaz de alterar inteiramente o quadro da nossa política internacional.  
+
+Com a ajuda do capital europeu e fugir à pressão de dívidas amontoadas nos bancos norte-americanos. O Presidente Jânio Quadros acabou com os privilégios cambiais dos importadores e limitou a remessa de lucros para o Exterior e reatou relações di­plomáticas com os países socialistas.  
+
+Tudo o que diziam não passava de um reflexo do comporta­mento do governo da União Soviética no plano internacional.  
+
+Jânio Quadros, de modo definitivo, deu um golpe certeiro no mundo das dúvidas que os nacionalistas mais esquerdistas ali­mentavam contra sua linha de comportamento, na política interna­cional.  
+
+Do ponto de vista da política interna, mesmo que a informação não refletisse inteiramente o propósito do Presidente Jânio Quadros ou que essa mudança de política financeira e internacional fosse capitalizar a seu favor setores resistentes qualquer contato com a sua pessoa.  
+
+O Presidente dos Estados Unidos, John Kennedy, adverte o Presidente Jânio Quadros através de uma cadeia de rádio e televisão e envia ao Brasil o embaixador Lincoln Gordon, que também é advertido severamente pelo Presidente Jânio Quadros.  
+
+O obstinado silêncio do Presidente Jânio Quadros leva os udenistas à beira de uma crise, resultando num clima de expectativa, no qual apenas alguns mais experimentados conseguem agir politicamente.  
+
+Alimentados pelos mesmos propósitos que os "Nacionalistas" do PTE, os renovadores da UDN também conhecidos como "bossa nova" preciptaram-se na convocação de uma reunião de bancada, diante da reserva de vastas áreas udenistas à propostas pelo Presidente Jânio Quadros, ora inteiramente isolado dos políticos e os mesmos apostando na instabilidade política reinante no país articulada por seu opositor Carlos Lacerda e o seu carrasco Oscar Pedroso Horta.  
+
+Além do mais, na política interna, a instrução 204, baixada pelo Ministro Clemente Mariani, causava desgostos generalizados, que eram acrescidos pela severa política dos bilhetinhos, com os quais o novo presidente da República trazia a administração pública em constante sobressalto pelas incertas que atingiam diariamente os chefes das repartições públicas.  
+
+O governador Carlos Lacerda revelou que Oscar Pedroso Horta - começou com uma conversa esquisita, na qual falava sobre a necessidade da mudança da Constitução e da necessidade de "chantagear o Congresso" com uma carta-renúncia datada de 25/08/1961 que o presidente do Senado já tinha conhecimento do teor da carta chantagem.  
+
+- "Como acreditar num bêbado contumaz." - ironizou Carlos Lacerda, referindo-se ao Ministro da Justiça Oscar Pedroso Horta.   
+
+O Presidente Jânio Quadros, iria condecorar "Che" Guevara que transitava por Brasília, rumo a Havana, vindo da Conferência de Punta del Este. Iria entregar-lhe a Ordem do Cruzeiro do Sul, no grau Grã-Cruz. Enquanto isto, estava previsto para o governador, nesse mesmo dia, no Rio, entregar ao líder anti-castrista Manuel Antônio Verona, a chave simbólica do Estado da Guanabara.  
+
+Lacerda, ao chegar ao portão do palácio e ao ver suas malas ali colocadas, considerou-se humilhado. Resolveu, então, reagir violentamente contra a tentativa de desmoralização à sua pessoa. Dirigiu-se ao Hotel Nacional, a fim de passar a noite.  
+
+Do Hotel, ligou para Horta, protestando contra a tentativa de desmoralização de que acabara de ser vítima e, que ao retornar ao Rio iria denunciar a trama presidencial elaborada por um alcoólatra.  
+
+Nova e a calorada discussão aconteceu entre os dois.  
+
+O Governador Carlos Lacerda convocou uma rede de rádio e televisão. Falou na noite do dia 24 de agosto, revelando a sua versão com Ministro da Justiça Oscar Pedroso Horta em Brasília e o convite que havia recusado para entrar na conspiração. Durante 60 minutos Lacerda denunciou o Presidente Jânio Quadros como o principal líder de uma conspiração contra as instituições nacionais.  
+
+Jânio Quadros se retirou para o Palácio do Planalto com o General Pedro Geraldo, mal sabia ele estava, naquele instante, ao tomar conhecimento sobre as declarações do governador da Guanabara. Jânio ouviu todos, mas estava inabalável. Retirou-se para o Alvorada, onde se reuniu a D. Eloá e a D. Leonor, com as quais se dirigiu para o aeroporto e durante o trajeto, Jânio olhando para trás, pelo vidro do automóvel, fitou a silhueta de Brasília e sentenciou:  
+
+- "O atual Congresso está superado, não representa mais o povo. Cidade Maldita! Nunca mais porei os pés aqui."  
+
+Deixou no Palácio da Alvorada uma roupa e um par de sapatos .  
+
+Duas horas e meia depois, o Viscount presidencial descia na base aérea de Cumbica, onde se sucederia uma série de conferências políticas, com a presença, entre outros, dos Governadores Magalhães Pinto, Carvalho Pinto, Mauro Borges, Ney Braga e do Ministro Castro Neves, que ali chegou dirigindo seu próprio carro.  
+
+Enquanto isso, em Brasília, o Ministro Pedroso Horta se encarregava de fazer as últimas comunicações e articulações a todos os governadores de estado e levava pessoalmente ao presidente do Senado a carta renúncia do Presidente Jânio Quadros, da qual já tinha conhecimento 5 (cinco) dias antes - pelas mãos do próprio Horta.   
+
+ (\*) é professor universitário  
+

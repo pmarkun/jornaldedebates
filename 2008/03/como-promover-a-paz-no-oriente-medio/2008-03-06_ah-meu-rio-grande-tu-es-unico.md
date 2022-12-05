@@ -1,0 +1,11 @@
+---
+title: AH, MEU RIO GRANDE! TU ÉS ÚNICO!
+date: 2008-03-06 21:00:00
+author: max.paim
+debate: Como promover a paz no Oriente Médio?
+slug: ah-meu-rio-grande-tu-es-unico
+status: publish 
+type: post
+---
+
+Costumo dizer que o Rio Grande nunca terá paz, porque estamos sempre peleando. Mas peleando no sentido pacífico da palavra. O que quer dizer essa expressão é que não nos conformamos com as adversidades. Mas meu artigo hoje será a música intitulada "Coplas de um Gaúcho Brasileiro" do cantor e compositor Angelo Franco que ilustra fielmente o povo gaúcho e serve exatamente para este tema. " Esta parada que eu carrego no meu jeito / vem do meu peito embriagado de ideal / eu sou de um povo que se fez a ferro e fogo / guardando posto no Brasil meridional / os olhos firmes não retratam amarguras / pois as agruras não são mais que provações / se rio pouco quando rio, sou sincero / Sei o que quero não nasci pras ilusões / a cada dia que o Brasil fica mais velho / eu me revelo mais gaúcho e brasileiro / pena que os olhos do país às vezes turvam / e nos enxergam muito mais como estrangeiros / é bem verdade que não somos agregados / aos que parados choram pranto de miséria / sangue latino, coração de terra bruta / a nossa luta é por trabalho e gente séria / nossas verdades têm razões nacionalistas / como ativistas da cultura regional / Já não pregamos nenhuma separação / revolução é dar a mão ao seu igual / por isso eu digo pra cada brasileiro / somos gaúchos com orgulho da nação / apenas peço não esqueçam do Rio Grande / que ainda temos o Brasil no coração!        Não preciso escrever mais nada quanto a isso. Só posso lamentar e desejar que todos os povos se voltem pra terra e respeitem-se. Que atentem para as suas chagas e espelhem-se em territórios como o meu estado que depois da Rev. Farroupilha, da Rev. de 1893, da Rev. de 1923 e das revoltas da Era Vargas, armonizou-se e hoje vive pacificamente mas respeitando e exigindo respeito, pois não baixamos a cabeça e nem a lança da vontade de transformação ante a realidade! É certo que também temos os problemas dos outros lugares, mas somos exemplo de trabalho e seriedade,  e sempre irmanados! Pois nenhum povo merece ser aniquilado!

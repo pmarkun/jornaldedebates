@@ -1,0 +1,11 @@
+---
+title: RAPOSA DO SOL - O BRASIL DO B
+date: 2008-05-14 21:00:00
+author: euripedes.ribeiro
+debate: Reserva Raposa Serra do Sol: quem tem razão?
+slug: raposa-do-sol-o-brasil-do-b
+status: publish 
+type: post
+---
+
+A polêmica sobre a demarcação da reserva indígena Raposa do Sol, tornou-se ainda mais tórrida a partir do episódio envolvendo o general Augusto Heleno, comandante militar da amazonia. É sabido que o Exército discorda da política indigenista que vem sendo praticada no país, quando milhões de hectares de terras são demarcadas em favor da população indígena, que poderá abocanhar 12,4% do território nacional . É espantoso verificar que toda essa extensão territorial benefiará cerca de 488 mil índios! E que algumas reservas, como a Raposa do Sol, serão demarcadas de forma contínua, envolvendo comunidades e até mesmo cidades habitadas por brancos, que serão desapropriadas e terão suas populações evacuadas com o projeto. É mais espantoso ainda, verificar a ingerencia de ONGs e organismos internacionais, que têm ditado as normas nas questões pertinentes e alijado os militares de qualquer discussão sobre tal política. É compreensível a irritação do General Augusto Heleno, CMA, responsável direto pela vigilancia e proteção das nossas fronteiras amazônicas, quando se refere à política indigenista do Brasil como caótica. Tal política, deriva da omissão e da desinformação do governo, que permite que se proíba a participação de militares em uma reunião onde têm assento ONGs e representantes de organismos internacionais. Tal política equivocada, permite que seja preso um fazendeiro produtor de arroz, que ousou defender a sua propriedade, sub-júdice, do ataque de invasores, quando a legião de baderneiros e desocupados representados pelo MST e movimentos similares, saqueiam e destroem o país. É preciso repensar essa nossa política indigenista, que coloca em um mesmo balaio populações de vida primitiva e índios aculturados, proprietários de aviões e envolvidos com madeireiras e garimpeiros. Preservar a cultura e a dignidade das populações indígenas não pode ser mote para a festa dos aproveitadores e oportunistas nacionais e internacionais. E é preciso ouvir o Exército, essa instituição respeitável e patriota que está muito além de politicagens rasteiras e demagogias!

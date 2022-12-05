@@ -1,0 +1,55 @@
+---
+title: "Porque já mandei o marechal no meu lugar. E basta".
+date: 2009-01-11 01:26:56
+author: nelson.valente
+debate: Campanha eleitoral: a mídia cumpriu o papel ou tomou partido?
+slug: porque-ja-mandei-o-marechal-no-meu-lugar-e-basta
+status: publish 
+type: post
+---
+
+(\*) Nelson Valente
+O presidente Café Filho organizou todo o seu Ministério, mas faltou a escolha do titular da Guerra. Foi aí socorrido pelo general Juarez Távora, chefe do Gabinete Militar, que após sucessivas reuniões, sugeriu: 
+- "Precisamos de um general apolítico, austero, severo, profissional e não comprometido. Proponho o nome do general Henrique Duffles Teixeira Lott".
+Ele, até então, havia sido um militar estritamente confinado aos seus deveres militares. Havia lutado contra os revolucionários de 1930.
+Feito ministro, começou a divergir do esquema militar que então sustentava o presidente Café Filho. Declarou-se de saída favorável à saída democrática, que trazia em seu bojo a candidatura do então Governador de Minas, Juscelino Kubitschek.
+Quando se abriu a sucessão presidencial de 1955, ele era o homem forte.
+O presidente Café Filho internou-se no Hospital dos Servidores do Estado, com um enfarte no miocárdio e foi substituído pelo Presidente da Câmara, o Deputado Carlos Luz.
+Na noite de 10 de novembro de 1955, o General Lott compareceu a uma audiência com o Presidente interino no Palácio do Catete, que o fez esperar muito tempo na ante-sala. Ao recebê-lo, houve uma áspera troca de palavras entre os dois, que culminou com a demissão do general Lott e com a nomeação do general Fiúza de Castro, da reserva, para substituí-lo. Consultado no hospital, o presidente Café Filho aconselhou a imediata posse do General Fiúza. Mas o Presidente em exercício, Carlos Luz, achou que ele só deveria tomar posse no dia seguinte. 
+Voltando à sua residência oficial, na Tijuca, o general Lott viu que na casa do seu vizinho, comandante do I Exército, general Odílio Denys, a luz estava acesa. Dialogaram pelo telefone privativo: "Isto não pode ficar assim, com você, Lott, inteiramente desmoralizado. Bote a farda e vamos para o quartel general, porque as tropas já estão indo para a rua", disse Denys.
+Desse contato, resultou que ambos saíram para o Ministério da Guerra, a fim de assumir o comando da revolução.
+Enquanto isso, o presidente Carlos Luz tentava reunir forças para reagir ao contragolpe do general Lott. Convencido da inutilidade dessa reação, resolveu embarcar no cruzador Tamandaré, para tentar uma resistência a partir do porto de Santos. Mas retornou ao Rio, deposto.
+Durante mais de 30 horas, o general Lott governou o Brasil, entregando o poder ao Presidente do Senado, o senador Nereu Ramos. Dez dias depois, o presidente Café Filho saiu do hospital e anunciou o seu propósito de reassumir o lugar interinamente por Nereu, que se mostrou disposto a devolver-lhe a presidência. 
+O general Lott, inicialmente, também estava disposto a isso : 
+- "Afinal de contas, o Carlos Luz se impedira porque se encontrava em local incerto e não sabido. Mas o presidente Café Filho não está impedido pois, se encontra na cidade."
+
+O Deputado José Maria Alkmina interveio: "Não está impedido? Pois vamos lá em Copacabana para ver se ele está impedido ou não."
+Em companhia de Alkmine, Lott foi a Copacabana, viu o apartamento de Café Filho cercado de tanques e, conformou-se: "É, realmente está impedido."
+Aí, o Congresso confirmou Nereu Ramos no posto, onde ele permaneceu até o dia 31 de janeiro, quando o transferiu a Juscelino Kubitschek.
+Lott garantiu a posse e o governo de JK, durante o qual foi o grande condotieri. Não queria continuar no Ministério da Guerra, mas terminou aceitando o insistente convite do novo Presidente.
+No dia 29 de janeiro de 1959, passou para a reserva no posto de Marechal e o seu nome já começava a se projetar para uma possível candidatura presidencial.
+Não era o candidato da predileção de Juscelino, que o considerava com uma popularidade muito escassa e insuficiente para vencer Jânio Quadros, preferindo a candidatura de Juracy Magalhães, com apoio da UDN.
+O próprio Lott confessaria depois porque aceitou a candidatura: 
+- "Nunca tive propensão para a política e muito menos para ser candidato à Presidência da República. Consideram-me muito velho e achava que da política só havia recebido desilusões. Também não desejava ver-me face a face com os percalços de uma campanha eleitoral. Mas havia comandado a 2ª Região Militar em São Paulo e vira pessoalmente as ligações do Governador Jânio Quadros com as organizações comunistas, às quais dava dinheiro. Além do mais ele se considerava superior à média dos brasileiros e jactava-se disso. Desde já, temia pela sorte do Brasil se ele chegasse à Presidência da República. Por isso, resolvi enfrentá-lo, para evitar que o pior acontecesse..."
+
+O marechal Lott já estava com sua campanha na rua, lançada pela Frente Parlamentar Nacionalista, com apoio declarado de Jango e de Brizola. Havia também o Movimento Militar Constitucionalista, que estivera por trás da entrega da espada de ouro, durante um agitado comício em que o marechal fizera seu début num palanque.
+O PTB saiu na frente, levando como caudatários o PSD e o Partido Comunista Brasileiro, cujo líder, Luís Carlos Prestes, não se cansava de enaltecer as qualidades nacionalistas do candidato, no apoio às teses do Petróleo é nosso e na oposição ao FMI.
+Para rechear ainda mais o leque partidário, o marechal recebeu posteriormente a adesão de outras siglas: o PSB (socialista), o PRP (integralista) e o PST.
+A televisão e o rádio já eram então dois poderosos veículos de comunicação que começavam a substituir os grandes comícios. Mas a presença pessoal dos candidatos ainda rendia votos e era muito exigida pelos correligionários.
+Falar um comício era um sacrifício para o marechal, que não estava acostumado àquele tipo de expressão. Ficava mais vermelho ainda do que era normalmente. As frases não lhe saíam com facilidade e o improviso não era o seu forte.
+Quando tinha de fazer um pronunciamento, mais importante, preferia ler. Era mais fácil e seguro pois, a oratória nunca foi o seu forte.
+Assim mesmo, fez uma campanha de âmbito nacional, indo a praticamente todos os estados, a fim de atender os convites dos diretórios pessedistas e petebistas, que não abriam mão de sua presença, sobretudo naqueles estados onde haveria também eleições dos Governadores.
+A maioria das viagens era feita no lento bimotor DC-3, eram demoradas e penosas. Houve um dia em que o marechal fez um comício ao meio-dia em Porto Alegre, outro ás 5 horas da tarde em Curitiba e o terceiro à meia-noite em São Paulo, já com um público reduzido, em face do adiantado da hora.
+Cometeu equívocos e deslizes imperdoáveis. Certa vez, em Campinas, saiu-se com esta: 
+- "Estou muito feliz e honrado por voltar a esta terra onde passei alguns dias como comandante das tropas de ocupação, após a derrota da Revolução Constitucionalista de 1932...".
+
+Ou então, ao visitar Ribeirão Preto, capital da região produtora de laranja, aconselhou os agricultores locais a plantarem soja como a salvação da lavoura no Brasil. E em Ilhéus, centro da produção cacaueira, fez rasgados elogios aos cafeicultores de São Paulo.
+Os líderes do astuto PSD só faltavam morrer de raiva e de desgosto. Parece até que o marechal fazia de propósito para mostrar independência: "Era impossível escolher um candidato que cometesse mais gafes do que ele".
+No dia 23 de setembro, realizou-se um comício em São João Del Rey, terra natal de Tancredo Neves. Talvez, por isto, a afluência dos correligionários ao palanque foi tão grande que, a certa altura, os promotores da manifestação recearam pela segurança do coreto.
+Quando o marechal chegou, a comitiva acrescentou alguns quilos no palanque, que não resistiu e desabou.
+Foi um corre-corre pois, receava-se de um atentado contra o candidato, ato de sabotagem. O resultado foi: muitos feridos e o próprio marechal fraturou a perna.
+Os partidário de Lott viram, no acidente, a gota de água que transbordou para o desânimo de todos. Era o prenúncio da derrota, que aconteceria dias depois, 3 de outubro.
+Além de tudo isso, o DC-3 sofreu pane e as cidades mais distantes já não podiam ser atingidas. A solução foi percorrer de trem vários municípios paulistas sem a presença do candidato, cuja perna estava engessada.
+Enquanto isto, do outro lado do campo, o candidato Jânio Quadros se esbaldava com a vassoura em punho, ameaçando punir os corruptos e os negocistas, cruzando o País em todas as direções, a bordo de um DC-3.
+Em relação ao seu adversário, o militar digno, honrado e sincero, Jânio ainda se dava ao luxo de fazer ironias, quando, por exemplo, ao ser perguntado por que ainda não visitara a cidade paranaense de Campo Mourão, respondeu com sarcasmo: "Porque já mandei o marechal no meu lugar. E basta".
+(\*) jornalista

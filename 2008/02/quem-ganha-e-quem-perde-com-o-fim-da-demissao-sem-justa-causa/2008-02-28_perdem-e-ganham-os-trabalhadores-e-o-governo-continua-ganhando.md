@@ -1,0 +1,11 @@
+---
+title: PERDEM E GANHAM OS TRABALHADORES E O GOVERNO CONTINUA GANHANDO!
+date: 2008-02-28 21:00:00
+author: max.paim
+debate: Quem ganha e quem perde com o fim da demissão sem justa causa?
+slug: perdem-e-ganham-os-trabalhadores-e-o-governo-continua-ganhando
+status: publish 
+type: post
+---
+
+O governo, por não ter nenhum interesse, não diminui a carga tributária das empresas. Já os trabalhadores, com essa medida, do meu ponto de vista, ganharão se forem demitidos por mais um tempo e perderão pois aumentará o nível de exigência das empresas. Como é a política da troca do lucro que impera na elaboração das medidas governamentais, pois não se faz nada sem que sejam calculados os movimentos para saber se o governo vai perder alguma coisa ou continuar ganhando, sempre o objetivo é de beneficiar apenas o trabalhador e as empresas ficam em segundo plano, porque "é a zelite" e a que mais ganha e mais explora. Poderia o messias de Garanhuns beneficiar a empresa cortando algum imposto enquanto o funcionário é beneficiado com esta medida, pensando em seu "filho fenômeno" dono da Gamecorp. Mas não. Seus apaniguados mamadores devem ter total atenção pois são milhares de famílias que estão comendo as três refeições por dia por trás dos mesmos.    É um governo que usou a técnica do violino para ascender ao poder: tomou-o com a esquerda mas toca-o com a direita, provando que o socialismo estrivado na democracia da américa latina só serve, em Cuba, Venezuela, Bolívia e Brasil, para acabar com a própria democracia através medidas ditatoriais contra a imprensa, como a criação da comissão de avaliação de programas no Brasil, e medidas de censura através da regulamentação de exibição da faixa etária recomendada antes do início dos programas.    Para acabar com adeptos do socialismo, é só convidar-lhes para um negócio, honesto serve, com boas perspectivas de lucro já mudam de lado e vão morar debaixo da saia do capitalismo. É só ver o que aconteceu com Lula e com a China. O sucesso de ambos é resultado de uma estreita relação com a política financeira "da zelite".Os brilhantes pensadores gregos da democracia devem estar se remoendo no túmulo com esta mixórdia do nosso mundo atual. Dinheiro, todo mundo da área da política gosta e ninguém abre mão.

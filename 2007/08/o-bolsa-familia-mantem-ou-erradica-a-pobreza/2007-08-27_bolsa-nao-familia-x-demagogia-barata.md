@@ -1,0 +1,15 @@
+---
+title: Bolsa NÃO-Família X Demagogia Barata
+date: 2007-08-27 21:00:00
+author: jose.alcantara
+debate: O Bolsa-Família mantém ou erradica a pobreza?
+slug: bolsa-nao-familia-x-demagogia-barata
+status: publish 
+type: post
+---
+
+Antes de mais nada, vamos aos fatos... Por que, afinal, os casais pobres têm muitos filhos e os de classe média e alta não? A resposta é simples e bem conhecida, além da falta de planejamento familiar, filhos são fontes de renda para essas famílias miseráveis. Seja ajudando na lavoura ou mendigando nas ruas, os filhos ajudam no sustento da família, então quanto mais filhos mais renda... E como filho de pobre e desempregado, pobre e desempregado é, temos que a população pobre tende a crescer exponencialmente, enquanto as demais classes, mais esclarecidas pela educação, tendem a se estabilizar por planejamento familiar. Isso significa que a população pobre, além de crescer de forma absoluta, também cresce relativamente ao resto da popualação, aumentando cada vez mais o nível de miséria da sociedade.  
+
+ Nessa perspectiva podemos ver que o programa Bolsa-Família, ao invés de minimizar as dificuldades dessas famílias, vem a ser a institucionalização da esmola, que já não precisa ser pedida nas ruas, mas sim nas secretarias das prefeituras... Agora os pobres têm muitos filhos para ganhar Bolsa-Família e, assim, ajudar no sustento da família. E por que trabalhar se a Bolsa-Família dá mais renda? E quanto mais filhos, mais Bolsa-Família, e quanto mais Bolsa-Família, mais filhos! Entramos assim num círculo vicioso de reprodução de pobreza e desemprego... Alguns hão de falar da contrapartida do programa que exige que as crianças beneficiadas frequentem a escola, mas esquecerão que trata-se, em geral, de escola pública sucateada e de ensino de baixa qualidade, algumas ameaçadas por delinqüentes, que dificilmente aumentará as oportunidades de futuro para essas crianças, e que nada impedirá que elas vão à escola pela manhã e mendiguem à tarde...  
+
+ Por isso venho propor, como alternativa a essa situação, a Bolsa NÃO-Família. A proposta é simples: ao invés de pagar às famílias miseráveis para se reproduzirem descontroladamente, aumentando o número de miseráveis que dividirão entre si essa parca esmola enquanto sofrem o drama do desemprego, o governo pagaria às pessoas para NÃO TEREM FILHOS! Afinal é muito mais efetivo dividir o dinheiro entre duas pessoas do que dividí-lo entre 4 ou 5 ou 8... Em contrapartida, os casais interessados no benefício teriam que se submeter à cirurgia contraceptiva (laqueadura, as mulheres e vasectomia, os homens, essas cirurgias são oferecidas gratuitamente pela saúde pública). Além do benefício da maior renda ´per capita´, podemos citar outros benefícios como diminuição do número de menores abandonados e estabilização da população pobre, o que frearia o crescimento dos níveis de marginalidade e criminalidade. Além disso, o dinheiro economizado das Bolsas-Família poderia ser revertido para o desenvolvimento do país, diminuindo a taxa de desemprego e melhorando ainda mais as condições de vida dessas pessoas e da sociedade como um todo.

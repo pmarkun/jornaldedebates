@@ -1,0 +1,11 @@
+---
+title: Defendo a aplicação deste veneno contra as ervas daninhas da nação!
+date: 2008-01-21 22:00:00
+author: max.paim
+debate: A proibição de jogos na internet é censura?
+slug: defendo-a-aplicacao-deste-veneno-contra-as-ervas-daninhas-da-nacao
+status: publish 
+type: post
+---
+
+Por ser estudante de Direito, levo sempre a bandeira da democracia desfraldada onde quer que eu vá. Mas também desejo um dia ver a sociedade brasileira se interessar por uma vida séria de estudos, trabalho, e não refém de atrativos artificiais como jogos virtuais, novelas e reality shows enlatados.    Devíamos nos preocupar em levar uma vida de qualidade desde a infância, mas como se sabe, as crianças se interessam ferrenhamente em televisão e jogos. É aí que entra um fator importantíssimo para o crescimento do país: a pessoa que zela pela criança. Seja ela pai, mãe, tio, tia, avó, avô, babá. Está nas mãos dela a definição do que a criança gostará.    Os pais, principalmente, erram na educação dos filhos quando não querem ter pulso firme com medo de serem maldosos. Educação, no sentido de polidez, se ensina em casa. Em primeiro lugar até os treze ou catorze anos a criança deve ter respeito pelos adultos. Em segundo lugar, a partir dessa idade ela precisa ter respeito por si própria.     Mas também a mídia deve contribuir para crescimento do país. A má programação das tv´s induz e contamina a mente de quem zela por boa cultura e boa educação. Novelas das nove que só mostram o Rio de Janeiro (aqui critico a falta de criatividade e não a cidade), mocinhos que nunca morrem e bandidos que nunca vão para a cadeia, BBB´s fazendo a dança do acasalamento já na primeira semana de programa, filmes de violência, O Melhor do Brasil (que na verdade é O Pior do Brasil) com entrevista, por exemplo, do Tiririca falando de sua vida sexual, Alexandre Frota encenando quadros de paquera, Domingo Legal e as reboladas das dançarinas e o sensacionalismo do De Volta pra Minha Terra.    Não quero perder meu tempo falando desse lixo, mas cortando essa realidade televisiva e virtual que induz a sociedade à violência, prostituição, evasão das escolas e gravidez precoce, o país realmente cresceria se fizesse um boicote à esses maus produtos e déssemos uma educação de valor para as nossas crianças.

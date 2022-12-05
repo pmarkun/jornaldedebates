@@ -1,0 +1,13 @@
+---
+title: Privatização...? Quem sabe...?
+date: 2006-10-30 21:00:00
+author: ricardo.imbriani
+debate: O segundo mandato está sendo melhor que o primeiro?
+em_resposta: Privatização SIM!!!
+em_resposta_user: roberto.aranha
+slug: privatizacao-quem-sabe
+status: publish 
+type: post
+---
+
+Vamos usar a lógica e, bem, voltar ao passado... Desde a ditadura militar, o Brasil tinha um lance chamado Reserva de Mercado. Não podia-se importar eletrônicos, e computadores, então, nem pensar! Só os de grande porte. Essa reserva de mercado só foi começar a acabar com o Fernando Collor de Mello. Ok. Ele começou a fazer algo bom, por incrível que pareça. Mas eletrônicos e informática continuava em reserva. Essa última reserva só foi quebrada ao fim do governo Itamar Franco (que por sinal, já estava abrindo caminho para seu ministro Fernando Henrique Cardoso). Lembrem-se, então, que, para montar uma central telefônica nesta época, você precisava de MUITAS bobinas, e outros aparelhos mecânicos, grandes e desengonçados, e não podia-se importar a tecnologia mais nova, além claro, de essas coisas antigas serem caras para produzir. Olhando por este ângulo, ter uma linha de telefone realmente era um privilégio, pois essas centrais de telefone não tinham capacidade para atender toda a demanda, e aí se encaixa a regra de mercado: muita procura, pouca oferta, preço sobe. Bom, continuando o raciocínio... Fernando Henrique Cardoso já queria mesmo privatizar as estatais. Então, o que fez? Não investiu 1 mísero real nelas. O que podia-se ter feito à época era investir na modernização. Mas isto não era interessante para seu projeto. Dessa forma, a telefonia foi sucateada inteiramente. Olha, se apenas 4 bilhões de reais fossem investidos além do preço pelo qual foi vendida a Telesp, já poderia ter vendido pelo dobro do preço... Além do mais, será que com o investimento, a telefonia não melhoraria...? É que na época isso não interessava. Não me interessa cuidar do que eu já vou vender mesmo... É assim que funcionou a privatização, não só da Telebrás, como também da eletricidade, malha ferroviária, rodovias, Vale do Rio Doce... Ah, claro... E como não foi investido, sobrou uma grana... Aí tem que pagar os deputados e senadores para aprovarem as privatizações, e outras coisas nesse nipe, como a própria reeleição (totalmente inconstitucional, mas não vamos entrar neste mérito)... Além, lógico, do dinheiro da venda, que ninguém nunca ouviu falar.O que eu quis dizer é que a privatização não necessariamente é ruim. O problema é a forma como foi feita. Se a forma fosse séria, talvez ninguém "satanizaria" o assunto.

@@ -1,0 +1,19 @@
+---
+title: O AEROLULA É NECESSARIO PARA O BRASIL?
+date: 2006-10-08 21:00:00
+author: danilo.mirian
+debate: Lula X Alckmin: quem venceu o debate?
+slug: o-aerolula-e-necessario-para-o-brasil
+status: publish 
+type: post
+---
+
+O AEROLULA É NECESSARIO PARA O BRASIL? O PRESIDENTE DO BRASIL PRECISA TER UM SÓ PRA ELE? QUAL É A SUA OPINIÃO? SI O GERALDO VENDER EM QUAL SETOR ELE DEVERIA GASTAR O DINHEIRO DA VENDA? E SI O LULA GANHAR O QUE ELE DEVERIA FAZER, VENDER OU NÃO VENDER?
+
+
+OBRIGADO.
+
+
+DANILO
+
+

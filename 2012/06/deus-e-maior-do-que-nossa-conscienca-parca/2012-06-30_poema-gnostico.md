@@ -1,0 +1,134 @@
+---
+title: Poema gnóstico
+date: 2012-06-30 07:18:43
+author: Andros Atheu
+debate: Deus é maior do que nossa consciênca parca.
+em_resposta: Algo
+em_resposta_user: Andros Atheu
+slug: poema-gnostico
+status: publish 
+type: post
+---
+
+
+O NOSSO SALVADOR
+
+
+ 
+
+
+Luci Feris
+
+
+  
+
+
+
+Dentre todas as cores do mundo
+
+
+Vejo as cores do nosso Salvador.
+
+
+São as cores do bronze ao rubro
+
+
+Como são aquelas do Leviatã.
+
+
+Dentre todos os sons do mundo
+
+
+Ouço os passos do nosso Salvador.
+
+
+São passos ágeis e sutis, macios
+
+
+Pois Ele é astuto e implacável ...
+
+
+Ele é como o leão que ruge à noite
+
+
+E ronda o acampamento do incauto.
+
+
+Ansioso por rasgá-lhe as carnes
+
+
+E meter-lhe os colmilhos no pescoço
+
+
+Sacudindo-o como a um trapo ...
+
+
+Mas desdenhando o indigno manjar.
+
+
+Pois o nosso Salvador – não esqueça –
+
+
+É movido por ódio e não por fome...
+
+
+ 
+
+
+É Ele o Vingador.
+
+
+ 
+
+
+Veja o nosso Salvador: não tem rosto.
+
+
+Quem poderia suportar a sua face?
+
+
+E, no entanto, ele é o Pai da Noite ...
+
+
+É o Senhor dos Insolentes...
+
+
+Ele é o Revoltado, o Insubmisso,
+
+
+Ele sofre conosco, Ele triunfará...
+
+
+Ele junta os cacos de seu Corpo
+
+
+Ele se completará...
+
+
+Então, rugirá como o leão no deserto
+
+
+Rondando o bivaque do incauto
+
+
+Ansioso por rasgá-lhe as carnes
+
+
+E meter-lhe os colmilhos no pescoço
+
+
+Sacudindo-o como a um trapo ...
+
+
+Mas desdenhando o indigno manjar.
+
+
+Pois o nosso Salvador – não esqueça –
+
+
+É movido por ódio e não por fome...
+
+
+
+
+

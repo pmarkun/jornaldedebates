@@ -1,0 +1,17 @@
+---
+title: SOFRO POR SABER ISSO; MAS ELE TEM RAZÃO  !!!!
+date: 2007-04-19 21:00:00
+author: valdemiro.silva
+debate: Qual a solução para a violência nas cidades?
+slug: sofro-por-saber-isso-mas-ele-tem-razao
+status: publish 
+type: post
+---
+
+A violência é o assunto do momento, pois é a única coisa que cresce no Brasil, "sem ninguém fazer força". MATRIX me diz que é fácil acabar com a violência; basta ter pessoas inteligentes e com interesse REAL de pôr ordem na casa. O problema é que o Brasil é dominado por uma máfia que comanda tudo; a começar pela política e vai se ramificando por todo lado, como se fosse um polvo, com seus tentáculos. Isso já tava claro pra mim; mas MATRIX diz que só tem duas formas de mudar tudo isso. A principal é através da política, com pessoas honestas, honradas e confiáveis; a outra é através da mídia ,que teria de realmente se preocupar com o país e seu povo, divulgando e mobilizando um povo que conta com 90% de "ovelhas" que só sabem seguir "um pastor". O povo sozinho não pode fazer grandes coisas, pois lhe falta inteligência e meios para agir. É aí que MATRIX põe o "dedo na ferida". Como uma mudança pode partir de dois "meios" onde está "alocado" o "cérebro pensante" desse "polvo" ( máfia), e que vive de explorar e manipular um povo ignorante e "sem noção" ??!!!!!. É o mesmo que o bandido mandar lhe prender por ser bandido. Então a saída mais difícil e quase impossível é o povo deixar de ser otário, ficar esperto e começar a confrontar políticos e mídia, mostrando que não "engole" mais suas mentiras e "verdades", sem falar em promessas e ações que servem só como "fachada" para dizer que se está preocupado e "fazendo" alguma coisa, quando na realidade é só uma "cortina de fumaça" para se deixar tudo como está ( dando lucro aos que estão no poder).E MATRIX diz que encontrar pessoas inteligentes tem sido sua missão ( assim como no filme). Pessoas de inteligência, que raciocinam com lógica é "artigo" muito raro no Brasil. E os poucos que tem essa capacidade, ou estão na "resistência" (como ele) ou já foram cooptados por essa máfia que faz fortuna fácil; ou pior, são calados por medo de perder posição, emprego, ou até a vida se indispondo com os "caciques" desse sistema. Então confiar em alguém, é uma atitude muito arriscada no Brasil, quando se pensa em melhorar e mudar uma situação que já está ficando insuportável ( para o povo). Por isso ele se mantém anônimo e procura pessoas confiáveis para se "relacionar".Quem sabe tudo isso, e não faz parte da máfia, corre grande risco em se expor. Eu sei que sou um "peixinho" no mar, mas ele é uma "baleia" que está em extinção. Nesse espaço, podemos falar isso ( o que já é muito), mas fora dele a mentira,enganação, e a "pose" de "intelectuais" com receitas e análises "inteligentes" é o que impera e é o que é pedido por essa máfia : " formem e alimentem a ignorância e idiotice do povo, pois é ele quem nos dá o "pão nosso de cada dia .....".  
+
+Bem já falei demais. Eu adorei conhecer MATRIX pois sempre procurei as verdades da vida, mas o que ele me diz me faz sofrer. Bem o remédio é ligar a tv, ler jornal, etc e "tomar" um "anestésico" pra tanta realidade "nua e crua".   
+
+Se alguém inteligente discordar dessa análise eu gostaria de ter sua opinião para passá-la para MATRIX e ver o que ele diz !!!!  
+
+Quanto a violência; pra quê se incomodar se "ninguém" vai resolver mesmo. A saida é "rezar" e "pagar" pra ir pro céu quando chegar a hora !!!!!!

@@ -1,0 +1,11 @@
+---
+title: Desmoralização da classe política.
+date: 2007-09-13 21:00:00
+author: augusto.01
+debate: A absolvição de Renan Calheiros desmoraliza o Senado?
+slug: desmoralizacao-da-classe-politica
+status: publish 
+type: post
+---
+
+A absolvição do Presidente do Senado, Renan Calheiro(PARTIDO DO MOVIMENTO DEMOCRÁTICO BRASILEIRO - Alagoas), é uma desmoralização para a classe política, já tão sem prestígio  por conta  dos últimos excândalos de corrupção e negligência administrativa vivenciados no Brasil. Mencionando: Apagão Aéreo, Sanguessuga, Escândalo das Ambulâncias,Escândalo dos Bingos, Escândalo dos Correios, Mensalão, entre outros que desonram este país.É bem da verdade que os vexames políticos não vem de hoje, os outros governos também presenciaram tal ignomínia - vi no dicionário(pai dos burros) - , mas não de forma explicita como está ocorrendo. Como diz mamãe:´´ O que os não vê, o coração não sente´´. Ás vezes me sinto tão desiludido, chateado, inconformado, com sangue de Che Guevara correndo  pelas veias,  que  prefiro  nem  ouvir, nem ler e muito menos assistir notícias sobre essa ´´democratas´´.... Viva a democracia.Internauta você deve estar pensando que é mais um adolescente com príncipio de Carl Marx querendo ser revolucionário,  tal  vez  seja  isso  mesmo,  mais  para  mim - que nem os índios tapera falam aqui na Terra da Luz(CE) - no alto da ingenuidade, existe o certo e o errado. Roubar é errado. Cadeia. Mas a jurisprudência e o burocratismo do homem democrata brasileiro no  poder parece que me desmente. A votação secreta contribuiu para evitar a exposição dos nomes dos senadores contrário a cassação de Renan, visto que a maioria da opinião pública é a favor de seu  afastamento. Tudo começou com um caso amoroso extra conjugal, Acusado de beneficiar empreiteiros em obras públicas e de patrimônio incompatível com que foi declarado, o senador junto com seus companheiros  políticos conseguiram maioria absoluta  para evitar a cassação.Fatos como esses descredibiliza a  confiança  que  os cidadãos  têm  pelo seus  representantes políticos, como também ostenta a falta de impunidade, prejudicial as futuras gerações que não deslumbram os limites que uma sociedade fundamentada em leis exige.

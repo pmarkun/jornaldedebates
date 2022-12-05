@@ -1,0 +1,17 @@
+---
+title: Quando vamos discutir o futuro?  
+date: 2006-10-24 21:00:00
+author: domingos.filho
+debate: As pesquisas mascaram a realidade?
+slug: quando-vamos-discutir-o-futuro
+status: publish 
+type: post
+---
+
+Às vésperas de mais uma eleição presidencial, poderíamos estar discutindo o futuro do país e não o passado. Nos últimos 40 ou 50 dias, as propostas para melhorar o Brasil foram esquecidas por dois candidatos que repetem exaustivamente táticas eleitorais e não administrativas. Lula não cansa de comparar seu governo com o de Fernando Henrique. Até no item corrupção tenta justificar seus escândalos com os do governo passado. Alckmin é genérico (sem trocadilho com o feito de José Serra), porque diz que vai melhorar, vai fazer, mas não revela como.
+ Não é por acaso que o tema corrupção tomou conta da campanha. Atolado em escândalos dos "irmãos", "companheiros", "meninos" ou "aloprados", além de um patrocinado pelo próprio filho, o Presidente primeiro apostou na ignorância do eleitorado, principalmente aqueles dos grotões de pobreza, não só do Nordeste. Quase ganhou no primeiro turno. No segundo, que não esperava disputar, preferiu usar as velhas táticas da política rasteira, fazendo do boato a principal arma. Aos servidores e sugadores da máquina pública, espalhou que Alckmin iria privatizar o Banco do Brasil, Petrobrás, Correios etc. Aos pobres miseráveis, disse que Alckmin acabaria com o bolsa-família.
+ Acuado, o candidato tucano não teve firmeza para responder e nem estratégia para mostrar que poderia fazer um governo diferente, principalmente na área econômica. Também não teve coragem de defender FHC. Resultado: ficou sem discurso e sem votos. Perdeu-se quando quis atacar no debate e foi abatido de vez quando não soube fazer as alianças que poderiam ajudá-lo a tirar votos de Lula.
+ Mas logo isso será passado, como toda a discussão inócua entre os dois candidatos. O importante é o futuro próximo, mais precisamente o ano de 2007. O que poderão nos oferecer os políticos? As reformas prometidas e não cumpridas? Um comportamento mais ético?
+ Não temos elementos para acreditar em qualquer das duas hipóteses. Lula e o PT destruiram o sonho de milhões de jovens. Dissimularam quando não mentiram, omitiram-se quando deveriam assumir responsabilidades. E o que sobrou aos cidadãos que ainda acreditam no país? Nada. Não houve sequer uma proposta inovadora ou pelo menos saneadora. Não teremos nos próximos quatro anos nenhuma oportunidade de evoluir, economica, social ou eticamente. 
+ É tão desanimador o quadro que alguns sonham com a impugnação da candidatura de Lula e o impedimento de sua posse. Outros apostam numa coalizão (o termo fica muito próximo de mensalão) para garantir um acordo entre as forças políticas. Mas isso é bom? Quando poucos fazem acordo, muitos perdem. 
+ Diante de tão grave quadro, só nos resta começar a discutir política de verdade para os próximos anos. Se para isso precisarmos de reformas, vamos pressionar para que elas aconteçam. Vamos acordar para a democracia, que não é um sistema só partidário. A sociedade organizada precisa acordar para suas obrigações. Se o Presidente da República e a maioria do Congresso não têm interesse em mudar, que a iniciativa parta das ruas. Um dia os movimentos sociais terão que reivindicar mais do que um pedaço de terra ou cestas básicas. Esse dia chegará, embora não seja nos próximos quatro anos. Temos que prepará-lo e nos preparar para ele.

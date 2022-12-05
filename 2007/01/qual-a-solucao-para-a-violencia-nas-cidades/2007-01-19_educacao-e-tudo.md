@@ -1,0 +1,11 @@
+---
+title: Educação é tudo!
+date: 2007-01-19 22:00:00
+author: ricardo.barros
+debate: Qual a solução para a violência nas cidades?
+slug: educacao-e-tudo
+status: publish 
+type: post
+---
+
+Ao nos depararmos com a violência nas grandes cidades brasileiras, devemos nos dar conta que os governos, no decorrer da história, nunca investiram pesadamente em Educação. Evidentemente, a crise social pela qual passa a nação também é responsável pelo aumento da violência nos grandes centros urbanos, mas a Educação é condição única para a melhoria da condição de vida das pessoas e para a diminuição dos índices de violência tão alarmantes em nosso país. Muito tem se falado da nossa formação histórica e cultural, como se só elas fossem a razão da escalada da violência em nosso país. Também se fala da questão da redistribuição de renda, que em nosso Brasil é vergonhosa. Sem dúvida esses fatores são importantes, entretanto, apesar dos esforços dos últimos governos o investimento em Educação no país ainda é pífio. Existem ainda no Brasil, muitas crianças e jovens fora da sala de aula. Muitos não conseguem prosseguir em seus estudos e são colocados para fora da escola, à margem da sociedade. Se quisermos ter uma nação verdadeira, baseada na justiça social, devemos enfrentar essa grave crise. Nas últimas eleições um dos candidatos à presidência da República teve como bandeira política o investimento em Educação, mas sua plataforma não foi levada a sério, inclusive pelos eleitores que não prestigiaram sua candidatura.Nas próximas eleições em todos os níveis, devemos ficar atentos a candidatos que defendam com unhas e dentes a bandeira da Educação.Em países como a Coréia do Sul, Cingapura, Malásia, denominados Tigres Asiáticos, o investimento em Educação, a partir dos anos 70 do século XX, foi a razão dos excelentes índices de desenvovimento vividos por esses países. A violência por lá existe, mas não em grande escala como no Brasil. Na mesma época, a situação do nosso país não diferia significativamente dos chamados Tigres Asiáticos, todavia, perdemos o bonde da História por não investirmos em Educação e hoje a realidade se impõe ao nosso Brasil.Se quisermos enfrentar realmente a questão da violência ela passa por uma Educação para todos e de excelente qualidade.

@@ -1,0 +1,26 @@
+---
+title: AS MORTES DE ACM
+date: 2007-08-19 21:00:00
+author: jose.dias4
+debate: ACM: Malvadeza ou Ternura?
+slug: as-mortes-de-acm
+status: publish 
+type: post
+---
+
+As fotos estampadas nos jornais que noticiaram a morte de Antônio Carlos Magalhães caricaturavam um tipo garboso, esbanjando energia e vitalidade. Eram fotos antigas e refletiam o auge de uma carreira política vertiginosa que se iniciou em 1954 e prosperou por mais de meio século. Nesse tempo, ele ocupou quase todos os cargos legislativos e executivos do país e elegeu ou indicou correligionários para outros tantos. Nas últimas eleições, entretanto, amargou fragorosa derrota. Certamente, não foi a primeira e nem a mais importante se comparada às de 1974 ou 1982, nas quais, ele próprio candidato, calculou mal as circunstâncias e os adversários. Mas foi a última.   
+
+Sua reação, dedo em riste, tentava erguer do túmulo sepulcral o carlismo combalido pelas disputas internas e soterrado pela vitória de Jacques Wagner na concorrência pelo governo baiano. A diferença é que não tinha a mesma disposição para buscar caminhos alternativos e encontrar os atalhos do poder. As alternativas, caras à sua trajetória, incluíam descartar aliados desnecessários, promover alianças inimagináveis e triturar os opositores. Os atalhos poderiam ser, indistintamente, uma ditadura verde-oliva ou uma democracia burguesa, pois, em qualquer palácio se sentia à vontade. Instrumentalizava o governo e o Estado para perseguir implacavelmente funcionários públicos insurgentes, estudantes rebeldes e qualquer outro mortal que transpusesse o seu caminho.   
+
+Alías, o denuncismo estéril tem desvalorizado esse último fator: a fina flor da elite brasileira sempre esteve às voltas com os dossiês vazios, conquanto perigosos, que ACM brandia no ar quando se via acuado. No salve-se quem puder, as ameaças eram esquecidas e os privilégios mantidos. Essa ressalva, naturalmente, não se aplica aos grupos anteriores citados por absoluta falta de dossiês e de privilégios.  
+
+A morte inevitável de Antônio Carlos Magalhães, aos 79 anos, depois de esgotados todos os esforços do corpo médico que o acompanhava, pegou a mídia de calças curtas. Às voltas com a cobertura dos Jogos Pan Americanos e o terrível desastre no aeroporto de Congonhas sobrou tempo apenas para reunir um amontoado de dados sobre a sua vida pessoal e política pinçados de arquivos próprios ou alheios. A análises mais sofisticadas, salvo exceções, reeditavam a fórmula do senso comum: a realização intensa de obras públicas combinadas com o carisma irretocável de um homem controvertido resumia o seu perfil. Algumas, nem isso. Às favas todos os mecanismos éticos ou não e todas as conjunturas mais ou menos favoráveis que possibilitaram tamanha expressão de homem público. Se as fotos mostravam a caricatura de um ancião em decadência, as palavras eram o retrato de uma sociedade política conciliadora que encontra eco na mídia despreparada.   
+
+A agonia do carlismo, a outra morte de ACM, sem data e lugar certos, mereceu poucas e imprecisas informações. O resultado das urnas foi laconicamente repassado, como se encerrassem todas as explicações possíveis para um processo histórico que durou cinqüenta anos. A "pá de cal" na hegemonia carlista prescindia de qualquer análise uma vez que a democracia representa a vontade do povo, expressa em última instância, no voto secreto e direto. Nossa história, política ou não, tem sido sempre assim: desmemoriada. Pouco importam as entrelinhas do passado se os resultados atuais são visíveis e sonoros, como também, se o passado existe.   
+
+As mortes de Antônio Carlos Magalhães representam sério prejuízo à história política desse país. Não me refiro, obviamente, ao legado deixado pelo patrono do carlismo aos seus pares que no afã de se pronunciarem sobre sua morte alegavam apenas esse suposto prejuízo. Falo de uma geração de jovens que haverão de ignorar a engenhosidade da elite brasileira para galgar o poder e os meandros das instituições republicanas modernas.  
+
+Antônio Carlos Magalhães desbancou do poder lideranças políticas importantes como Juracy Magalhães e Luís Viana Filho para se manter no poder e ocupar cargos estratégicos nos governos militares. Ao mesmo tempo, sustentou um arco de alianças que garantiram as eleições de Castelo Branco, que selaram a ditadura, e de Tancredo Neves, que a derrubou. Foi prefeito biônico e governador indicado nos tempos mais sombrios da história recente desse país do mesmo modo que foi aclamado pelas urnas no período democrático. Apunhalava com a mesma mão que afagava e, por vezes, sabia reconhecer a derrota com a mesma naturalidade de um sucesso. Em tudo isso não havia contradição, mas estratégias bem definidas de uma elite em busca do poder.   
+
+A insossa repercussão da morte de Antônio Carlos Magalhães demonstra o seu desprestígio, fruto de um poder artificial construído por ele ao longo de sua carreira política, agora em eclipse. O desinteresse pelas razões que golpearam o carlismo nas últimas décadas, esse sim, é um prejuízo real para a política e a sociedade brasileira: uma geração inteira mal informada e despreparada para lidar com os mecanismos de sujeição impostos pela elite política à sociedade brasileira.  
+

@@ -1,0 +1,11 @@
+---
+title: Insegurança de Alckmin
+date: 2006-10-24 21:00:00
+author: lucia.dias
+debate: Quem deve ser o próximo presidente?
+slug: inseguranca-de-alckmin
+status: publish 
+type: post
+---
+
+Com relação aos debates, as propostas do candidato Geraldo Alckmin são muito dispersas e evasivas, usa bastante o verbo sempre no futuro ( "vou fazer"). Porquê não fez no governo do seu Estado? O que se sabe é que cortou a verba da Educação, logo da Educação! Se um governo não prioriza a Educação, que deve ser o primeiro ítem na meta de qualquer governo, e que deve ser trabalhado para o crescimento e progresso de um país, o Estado e nem o País não tem como crescer nesse governo Durante os debates, ele passa o tempo todo falando sobre os erros e corrupções do governo do Lula. Alckmin torna o debate muito cansativo devido às suas inúmeras repetições, só fala no tal do dossiê e nos outros escândalos do governo do Lula. Ao invés de enfocar suas metas de governo, fica criticando Lula. Parece que ele decora um texto feito por alguém do seu partido., sinto como se o candidato à Presidência fosse um outro já conhecido nosso do PSDB, e não ele, Alckmin. Acho o Geraldo Alckmin muito inseguro, tem o humor muito variável, se irrita demais, não passa a menor credibilidade, também falta-lhe carisma. A meu ver, ele não tem cacife para ser presidente do nosso Brasil, com tantas características diferentes em cada região. Quanto ao Lula, mesmo que digam que é analfabeto e que o nosso país não pode ter como presidente alguém que não tenha estudo, mas foi o Lula, o único presidente até hoje que quitou a dívida externa, através disso, finalmente, o Brasil conseguiu sair das mãos do FMI e das mãos do todo poderoso Tio Sam. Lula cometeu erros e erros absurdos quando passou a mão na cabeça de seus amigos correligionários do PT quando os mesmos se envolveram em práticas de tantas corrupções.Lula, finalmente, admitiu que errou por não punir os tantos como Zé Dirceu, Palloci, e outros tantos e tantos. Espero que Lula saiba selecionar as pessoas certas para o seu novo governo, que não se esqueça que temos muitos brasis e com tantas realidades diversas, que ele priorize a Educação, Saúde e Trabalho, os ítens ainda carentes e bem defasados. Que Lula também reveja a questão das de juros, altíssimas. Enfim, voto no Lula mais uma vez.

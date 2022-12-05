@@ -1,0 +1,19 @@
+---
+title: NENHUM BENEFICIO MUITOS MALÉFICIOS
+date: 2010-10-06 14:12:29
+author: FERNANDO BRITO
+debate: Alguém se beneficia com PV dividido?
+slug: nenhum-beneficio-muitos-maleficios
+status: publish 
+type: post
+---
+
+A  DEMOCRACIA E O BRASIL NÃO TEM NADA A GANHAR  COM A DIVISÃO DO PARTIDO VERDE E
+
+
+EM ESPECIAL DA OPNIÃO DA MARINA  SILVA,  ALGUÉM QUE CONSEGUE AMEALHAR  20 MILHÕES DE VOTOS
+
+
+NÃO PODE  SIMPLESMENTE FICAR  ALHEIA  A CONDUÇÃO DO  SEU  PAÍS.
+
+

@@ -1,0 +1,13 @@
+---
+title: HISTÓRICAMENTE A MÍDIA SEMPRE TOMOU PARTIDO.
+date: 2006-10-18 21:00:00
+author: Roberto Laranjeira
+debate: Campanha eleitoral: a mídia cumpriu o papel ou tomou partido?
+slug: historicamente-a-midia-sempre-tomou-partido
+status: publish 
+type: post
+---
+
+O caso mais gritante talvez seja a do ex presidente Fernando Color, num primeiro momento a midia o retratava como um salvador da patria, principalmente em relação a caça aos marajas.Sua promessa era de governar para os descamisados e tornar o Brasil aberto para o desenvolvimento Global.Na época um dos mais fortes meios de comunicação do país não tomou partido mas, abriu bastante espaço para que ele pudece mostrar suas idéias de governo,principalmente nas regiões do pais onde era menos conhecido,derrepente sua figura estava estampada em todos os meios de comunicação.E ele foi eleito.Realmente cumpriu suas promessas de campanha (governar para os descamisados ou aqueles que não tinham nem $ 50,00na conta, OQUE NA ÉPOCA deveria ser a situação  de mais de 70% da população brasileira ,portanto maioria absoluta.Confiscou contas com CPFs fantasma,fez o confisco que prejudicou mais quem tinha mais e nada quem não tinha nada).Sabem os economistas sérios, que na época o confisco era a uma das unicas maneiras de salvar nossa economia da quebra geral , NÃO TINHAMOS DINHEIRO SÓ PAPÉIS, e desta quebra só se salvariam os que tinham DÓLARES OU CONTAS NO EXTERIOR, oque  tambem não era o caso dos descamisados.Começou a quebrar o esquema dos mensalões governando atravez de medidas provisorias,principalmente em relação a questões que envolviam  quebra de monopolios no Brasil ( IMPORTAÇÃO DE VEICULOS,CIMENTO ,CONSEÇÃO DE CANAIS DE TELEVISÃO E OUTROS assuntos que em nada prejudicaram os descamisados.Justamente por uma grande conhecidencia, quando a discusão da abertura de mercado dos canais de radio e televisão e a entrada dos canais a cabo no Brasil ganhou força, começaram a serem apurados "escandalos" que surgiam contra o presidente atravez da midia (canais de comunicação),mais uma vez nada afetou negativamente aos descamisados.Hoje temos uma midia mais diversificada porem transmitindo  as ideias dos formadoresa de opnião que nem sempre traduzem a necessidade ou anseios da maioria da população.Para concluir  não consegui ver ou sentir, nada que mostrasse a revolta do povo(DESCAMISADOS )nas ruas ,mas na têvê parecia que o problema da educação no Brasil tava resolvido ,nunca vi na tela tanto cara pintada.Um presidente cai pela operação encendeia e outro é reeleito pela operação abafa.Ir contra nossos interesses e a favor da maioria é uma tarefa muito dificil para o ser humano eu diria quase imposivel.EDUCAÇÃO,SAUDE E SOLIDARIEDADE.
+
+

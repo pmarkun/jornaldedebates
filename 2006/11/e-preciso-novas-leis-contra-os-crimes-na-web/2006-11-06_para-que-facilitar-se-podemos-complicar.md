@@ -1,0 +1,15 @@
+---
+title: Para quê facilitar se podemos complicar?
+date: 2006-11-06 22:00:00
+author: gilberto.santos
+debate: É preciso novas leis contra os crimes na web? 
+slug: para-que-facilitar-se-podemos-complicar
+status: publish 
+type: post
+---
+
+Senador,
+Há uma mania generalizada de complicar as coisas que deveriam ser simples. Como Consultor em Tecnologia da Informação posso assegurar ao senhor que esta autenticação baseada em cpf, rg, etc é absolutamente desnecessária. A própria tecnologia de IPV6, ao oferecer números IPs em quantidade suficente, poderá, permitir a fixação do endereço IP do usuário, e contribuir para identificar a máquina da qual partiu qualquer acesso. Assim, como basta a legislação, aí sim uma mudança necessária na regulamentação da atividade dos prestadores de serviço de acesso em Internet cafés, exigir das lojas de acesso que o usuário se identifique, ou que existam câmeras que gravem a entrada dos clientes, como em qualquer edifício, loja ou shopping. Não precisa nada disso de provedor autenticar e identificar o usuário, sabe por que? Porque quando o usuário assina um serviço ele já está identificado, com nome, rg, cpf, endereço, etc.. Basta apenas que o seu modem esteja vinculado à sua assinatura, e sua assinatura ao seu IP. Aliás, as operadoras de banda Larga ADSL já fazem isto. É simples assim. Não entendo como meus colegas especialistas que assessoram a comissão do congresso que debateu o assunto não lhes informaram estas coisas. Talvez haja alguma empresa fazendo lobby para vender certificados digitais, igual acontece no SERPRO.
+Quer me parecer que, ao invés de tomar medidas para conter um punhado de criminosos, o congresso pretenda controlar a imensa maioria que prima por um comportamento idôneo, já que sempre haverá o risco de um hacker invadir a máquina de um usuário inocente e a partir dela cometer seus crimes. Ou seja, você pode desenvolver qualquer tipo de identificação, mas o estelionatário nunca apresenta seus próprios documentos, vide o ET de Varginha que se apresentou como Laranja Fajuto no caso do Dossiê. 
+Outra ponto importantíssimo é que, segundo os jornais, a FEBRABAN apóia calorosamente a aprovação do projeto, como se isto fosse tornar mais seguras as transações bancárias via internet. Isto alimenta o mito de que os ladrões digitais sejam, nas palavras do próprio senador Azeredo, "geniozinhos" do mal. Ora, nada há de mais inverídico. Basta ver que quando a polícia federal prende uma quadrilha de, assim chamados, hackers constata-se, invariavelmente dois módus operandi: A quadrilha teve acesso às senhas do clientes através de funcionários do próprio banco, ou então a quadrilha enviou programas maliciosos para usuários incautos que acreditaram estar recebendo realmente as fotos de uma gostosona ou as fotos dos corpos dos mamonas... para citar dois exemplos clássicos. Nada de gênios, nada alta tecnologia, só a corrupção corporativa dentro dos bancos, ou o velho 171 aplicado com novas tecnologias.
+Mas para quê facilitar se podemos complicar, e ainda por cima vendermos uns certificados digitais, não é mesmo?

@@ -1,0 +1,11 @@
+---
+title: Ironia irritante
+date: 2006-10-19 21:00:00
+author: rogerio.correa
+debate: Lula X Alckmin: quem venceu o debate?
+slug: ironia-irritante
+status: publish 
+type: post
+---
+
+O candidato Lula resolveu responder as perguntas de seu adversário com deboches e ironias. É esse presidente que quer continuar governando? Não consegue nem falar sozinho sem ter que consultar cola!!!  Conseguiu governar até agora com tranquilidade pois deixou de fazer os ajustes necessários apoiado em uma economia cujas bases sólidas foram criadas no governo anterior. Não sou fã do FHC mas verdade seja dita, ele deu início à moeda forte que temos hoje e não o Lula. É uma pena ver que meu voto foi desperdiçado, votei no Lula e me arrependi. Não cometerei o mesmo erro novamente. Recordo-me que no início dos anos 90 tínhamos uma inflação galopante, era impossível viver com o salário parado mais de um dia depois de recebido, a inflação era voraz e consumia todo o nosso dinheiro em questão de horas. Fernando Henrique foi o ministro da fazenda do governo Itamar Franco que conseguiu impor uma moeda forte capaz de dominar a inflação e estabilizar a economia, depois assumiu como Presidente e fez o Brasil viver uma nova época, construiu as bases necessárias para hoje termos um salário mais valorizado com poder de compra maior, podemos observar isto em nosso dia-a-dia. Cabe lembrar que poderíamos ter crecido muito mais do que dois por cento, fato ironizado categoricamente pelo presidente Lula. Será que você acha que o povo ainda é tão burro que não percebe a fraude que foi seu governo? Me desencantei com o PT, não acreditava que a nossa maior esperança de um futuro melhor seria exatamente o contrário de tudo que o povo imaginava. Agora observamos um mar de lama todos os dias. E nosso presidente de início tenta proteger todos os envolvidos, depois diz não saber de nada e agora, vendo que suas tentativas foram infrutíferas, fala que vai tomar as providências necessárias, que a meu ver só serão tomadas muito tarde e depois de muita pressão. Lula, que pena, você talvez esteja sendo manipulado, e se isto for verdade, já demonstrou não ter forças para ir de encontro a essa vergonha nacional que se instalou no Palácio do Governo Federal.

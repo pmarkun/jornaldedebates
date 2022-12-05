@@ -1,0 +1,11 @@
+---
+title: Vergonha de ser Brasileira!
+date: 2006-10-19 21:00:00
+author: ana.scotton
+debate: Lula X Alckmin: quem venceu o debate?
+slug: vergonha-de-ser-brasileira
+status: publish 
+type: post
+---
+
+Quando me perguntam se tenho orgulho de ser brasileira digo que tive, orgulho dos cara-pintadas, da geração que era contra os militares. Hoje sinto vergonha de ser BRASILEIRA! Fico envergonhada de ver as passoas falarem que irão votar no LULA de novo! Não que eu ache que o Alkmim seja melhor ou pior, mas com tantos escândalos, tanto roubo, fico deprimida. As vezes acho que estou em outro Brasil, pois vendo as pessoas falarem tão bem do LULA e seus companheiros eu não posso acreditar que é o mesmo LULA e o mesmo BRASIL em que vivo. Dizer que essas bolsas que ele fornece para a população é maravilhosa, que esse negócio de cotas para entrar nas Universidades Púplicas são a solução para acabar com a desigualdade no país, é brincadeira! Uma vez li na revista Veja uma entrevista com um estudioso africano onde ele dizia que o problema da África eram as ajudas humanitárias pois eles davam o peixe mas não os ensinavam a pescar. Hoje eu coloco esta frase para o Brasil. Nosso governo dá bolsa prá cá, bolsa prá lá, mas não aumenta a economia do país para aumentar empregos para que a pessoa ganhe seu dinheiro dignamente sem depender de esmolas! O que o LULA está fazendo é a chamada política do pão e circo onde ele dá comida e futebol para o povo e o povo fica feliz! Pessoal vamos abrir os olhos e ver que não está certo esta corrupção! Temos que mudar ir para as ruas e mostrar para os nossos governantes que nós não estamos gostando disso, senão iremos caminhar para um futuro negro. Temos que tirar o LULA, o FHC e todos os outros mais que vierem e tornar a corrupção um negócio normal, isto não é normal pois quando um pobre rouba vai para cadeia e quando um político rouba volta para roubar mais e mais! Vamos mudar o Brasil! Se não deu certo com o LULA temos que tentar com outro. Se não der certo com o outro ele não irá voltar mais a governar nosso país, só assim poderemos caminhar para o progresso. Nossos governantes têm que saber que nós é que mandamos no país e não eles. Vamos lá quero voltar a ter orgulho de ser BRASILEIRA!

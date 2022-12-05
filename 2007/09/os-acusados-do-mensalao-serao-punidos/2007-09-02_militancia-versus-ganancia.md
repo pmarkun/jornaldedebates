@@ -1,0 +1,11 @@
+---
+title: Militância versus ganância
+date: 2007-09-02 21:00:00
+author: EDSON MILTON RIBEIRO PAES
+debate: Os acusados do mensalão serão punidos?
+slug: militancia-versus-ganancia
+status: publish 
+type: post
+---
+
+Senhor José Dirceu, sua militancia é historica e jamais Brasileiros iguaia a mim, esqueceram seu papel na historia deste País, mas o que esta em jogo são as armas que o senhor manuseou em dado momento desta batalha, creio que os fins não justificam os meios, o seu caso é bem diferente de outros cassados e a serem cassados, como o Sen Renan Calheiros, ele não tem historia de militancia politico-ideologica, o seu historico é de roubo contra o patrimonio publico e popular, mas o senhor tambem pecou, sua ganancia talvez não tenha sido por dinheiro, mas foi por poder, acho até admissivel, pois o que vivemos nos tempos da ditadura( e eu me incluo entre as vitimas), foi algo muito castrador em termos ideologicos e intelectuais, mas em dado momento o Senho depois de muita luta chegou ao poder, o que fazer agora para permanecer, ai começou o erro, foram articulados meios não eticos para que se criasse uma base considerada solida para se manter no poder, e sempre que forçamos as tendencias conjectural, acabamos fazendo cáca, Senhor José Dirceu, acompanhei sua trajetória de militancia ao longo de minha vida, fui lider estudantil, presidente de partido politico( de pouca expressão) mas assim que percebi que a sede de poder poderia descaracterizar meus propositos, asteei a bandeira da decencia e migrei de lado, não mudei de ideologia, mudei de parceiros, permaneci integro, não fiz historia de bem nem de mal, mas estou satisfeito com a direção que escolhi para minha ideologia, acredito na sua força de propositos, mas me desculpe, não acredito na sua inocencia em ter infrigido algumas leis para perpetuar o poder. Senhor José Dirceu, homens iguais ao senhor, se estiverem do lado ético da historia, engrandecem uma Nação, mas se migrarem para o outro lado, á empobrecem. Gostaria se possivel de receber uma correpondencia sua com suas proprias palavras(não de assessores), para que eu pudesse entender sua otica do referido assunto, ja li muita coisa a respeito de tudo que aconteceu, e acho uma pena um sonho tão bonito e longo, ser desperdiçado por questões taticas. Um grande abraço.

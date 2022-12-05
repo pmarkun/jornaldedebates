@@ -1,0 +1,25 @@
+---
+title: Educação: não há vagas para capatazes.
+date: 2007-10-07 21:00:00
+author: onei.boracini
+debate: Por que a educação não tem prioridade no Brasil?
+slug: educacao-nao-ha-vagas-para-capatazes
+status: publish 
+type: post
+---
+
+  
+
+Se uma empresa não é produtiva e lucrativa, qual teórico da economia ousaria colocar a culpa exclusivamente na linha de produção? É uma questão ridícula, diriam. Mas é o que acontece na educação. A educação segue caminhos pautados pela orientação canhestra de uma política nociva para o setor e, quando aparecem os resultados idesejados, eles são terceirizados para o professor e repetem o bordão: "ele não sabe dar aula".   
+
+A formulação dos planos oficiais que orientam as políticas para o setor têm apresentado todos os problemas possíveis. Ora são ditados pelo FMI, ora por uma visão assistencialista do estado, ou ainda por comissões que fugiram da sala de aula há muito tempo. Quando apenas esboçados são implantados como panacéia infalível pelos vários escalões dos governos, ávidos por inaugurarem qualquer banalidade que impressione pelo bombardeio da grande mídia. Quase sempre são planos que se amparam teoricamente nas vertentes acadêmicas da moda, que, embora úteis, já provaram ser insuficientes para arquitetar um rumo eficiente à educação, pois trabalham com referenciais de ensino fundamental e médio geralmente desatualizados.   
+
+Depois de implantados, os planos não são discutidos e nem reavaliados com regularidade e, acabam sendo enterrados numa vala comum. A educação nunca se ressentiu tanto da falta de uma diretriz séria que dê conta de vencer esse caos pós-moderno. Não há coerência entre os planos e as ações de governo para o setor. Propõe-se um tipo de educação assitencialista e cobram-se resultados práticos que atenda às exigências do mercado. O setor nunca precisou tanto de gestores humanos e com uma sólida cultura humanista para conduzirem a educação com seriedade e democracia. E assim, aventuras e mais aventuras pedagógicas são experimentadas a cada troca de governo ou de gestor.  
+
+E os fracassos continuam sendo repassados para os professores. Há uma cobrança ferrenha sobre sua atuação e faz-se vista grossa para todos os outros profissionais que atuam na educação ou em carreiras que se relacionam com sua clientela. Há sérios problemas na formação de alguns professores, assim como há sérios problemas na formação desses outros profissionais que interferem na educação. Enfim, o professor não constrói a educação sozinho.   
+
+Não podemos continuar a conviver com o pressuposto que todas as outras carreiras e funções da educação funcionem de forma exemplar e que o desastrado seja apenas esse profissional. Como em qualquer meio profissional, há bons e maus administradores e gestores na educação. Os bons estão sempre ocupados em dar assistência ao professor e aos alunos e quase nunca têm grande visibilidade. Já os incapazes de encontrar boas soluções mostram-se profissionais tacanhos que se ocupam em construiur meias verdades que denigram a imagem do professor em qualquer circunstância. Freqüentemente terceirizam para ele a responsabilidade daquilo que não conseguiram administrar. Alguns acreditam-se capatazes da educação, destinados a cobrar, distribuir culpas e repetir a filosofia oficial do "professor não sabe dar aula".  
+
+Externamente também há órgãos e entidades que não podem continuar ignorando a intimidade da educação e seus problemas mais sérios, pois a educação precisa retormar seu eixo urgentemente. Os juizados, as promotorias, os conselhos tutelares, a imprensa e os profissionais de serviço social e psicologia, precisam dar mostras que existem para proteger também o direito das maiorias e que conhecem a questão escolar mais de perto. Há muitos profissionais nessas carreiras que dão um foco excessivo nos desvios e ignora o quanto isso tem custado à maioria das nossas crianças e jovens que estão em plenas condições de se desenvolverem. Se nosso foco continuar sendo as exceções, todos perderemos nossa razão de ser. O Estado está desaparelhado para cuidar plenamente de uma minoria e tenta-se resolver o problema com ofícios para serem cumpridos em salas de aula. Não se trata de enxotar os menores que precisam de cuidados especiais, mas de assisti-los de fato. Não se pode sonhar com uma inclusão feita de papel. É preciso que esses setores se aproximem mais dos professores e dos alunos; é nessa relação que ocorre a ajuda mútua e a educação de fato. Reuniões de cúpulas e protocolos para a imprensa ver são inúteis se não houver disposição de trabalhar juntos no dia-a-dia.  
+
+A sociedade, se se pretende democrática, precisa ter coragem de repensar a educação e ter vontade de não mais brincar de batata-quente com os problemas da criança e do adolescente. É muita gente para fiscalizar e mandar fazer e poucos estão na linha de frente da educação para uma ação real e efetiva. As inchadas máquinas administrativas de todas as esferas precisam atender às necessidades das crianças, dos adolescentes, para que deixem de ser clientela de problemas sociais (que sempre existiram) e voltem a ser "estudantes".

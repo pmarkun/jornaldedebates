@@ -1,0 +1,13 @@
+---
+title: Coragem e ousadia da ONU e países membros
+date: 2009-01-12 16:43:16
+author: Elcirlene Almeida de Souza
+debate: Como promover a paz no Oriente Médio?
+slug: coragem-e-ousadia-da-onu-e-paises-membros
+status: publish 
+type: post
+---
+
+Não dá mais para ficarmos assistindo passivamente a violência cometido pelo Governo de Israel contra o povo palestino há décadas, dizimando-os progressivamente, fazendo sua limpeza étnica. Eternamente vitimados pelo Holocausto, utilizam esta capa para sensibilizar o mundo com seu passado e agem da maneira como querem e como bem entendem com o outro povo que, diga-se de passagem, nada teve a ver com seu sofrimento hitleliano.
+Assim como a ONU e seus países membros tiveram a coragem e ousadia de dividir um Estado (Palestino na época) em dois em 1948 e começou essa história que só piorou até os dias de hoje, eles têm agora que ter a mesma coragem de tomar uma atitude mais agressiva contra Israel e seu grande aliado, os EUA. Afinal, a culpa de todo esse conflito também é da ONU/países membros. E o que aconteceu depois? Israel expandiu seus territórios inescrupulosamente, os palestinos ficaram sem Estado, milhões estão refugiados e os que lá moram apenas sobrevivem, pois ou são massacrados pelos soldados israelenses ou definham a cada dia por falta de estrutura mínima. E nós, o mundo, assistindo isso há anos, só vendo piorar a cada década a situação palestina. Acabou o passado, ele não existe mais, acabou o Holocausto; existe sim um outro tipo de campo de concentração, com ornamento diferente, onde não tem água, comida, medicamento, saneamento básico, luz, um ornamento desértico, emagrecido, um povo desnutrido, mas um povo diverso, sofrendo nas mãos daquele povo que ainda "chora" pelo passado em suas belas e confortáveis moradias construídas num desses assentamentos que invadiram e construiram nas terras palestinas sem qualquer escrúpulo.
+Chega ONU e seus países membros, consertem o que fizeram em 1948. Sanções precisam ser feitas, não em papéis, mas sim em atitudes enérgicas, em bloqueios econômicos, em acusações e julgamentos em Tribunais de Guerra. Agora façam algo para tentar salvar um povo que precisa de nossa ajuda e, principalmente, de vocês, pois eles não pediram para vocês se meterem naquela época, então agora eles estão pedindo e precisando para atuarem hoje, aliás ontem. Sejam responsáveis, sejam decentes, sejam honestos consigo mesmos e com o povo palestino e devolva-lhes o Estado Palestino, uma vida digna, com trabalho, saúde, educação, saneamento, liderança, como dita a famosa Declaração Universal dos Direitos Humanos e, o que é mais importante, porque esse Estado lhes é de direito e foram vocês que tiraram deles.

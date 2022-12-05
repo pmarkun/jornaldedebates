@@ -1,0 +1,57 @@
+---
+title: O TRANSBARBARISMO NA UNIVERSIDADE PÚBLICA
+date: 2007-05-23 21:00:00
+author: joao.nascimento
+debate: Invasão da reitoria da USP: movimento estudantil ressurge?
+slug: o-transbarbarismo-na-universidade-publica
+status: publish 
+type: post
+---
+
+Por João Batista do Nascimento  
+
+www.cultura.ufpa.br/matematica/?pagina=jbn  
+
+  
+
+Não sendo da área de humanas, não tenho como fazer e nem é este um tratado no tema. E, assim como não sabemos qual é a forma completa do universo, mas apenas algumas idéias de fatos deste, também não sei por completo o que venha ser transbarbarismo. Apenas quero mostrar algumas das suas manifestações, que novamente não é fruto de pesquisas teóricas, envolvendo todas universidades públicas, rebuscada de fórmulas complicadíssimas que saíram da mais recente tese de doutorado defendida em universidade americana, a qual é recheada de índices e integrais complicadíssimas. Nada disto. São teses simples: tratam de fatos já corriqueiros e que o registro em uma apenas á ultrapassa todos os absurdos, mesmo para os que se dispõem em tolerar algum absurdo. Além disso, todo comparativo deste termo com algum outro, como barbárie, por exemplo, não é para que serva de justificativa ou tolerância, mas apenas como referência por ser mais papável.   
+
+  
+
+Um diferencial imenso que ocorre são nas formas de execução deste. Seus agentes não ficam perfilhados na entrada da universidade pública, sem que sequer possam se identificar como gente, metendo suas mãos no peito no meu peito, empurrando para impedir que eu entre e possa ministrar uma aula ou outros afazeres que tenho o dever de cumprir. Embora nem ponto oficial tenha que assinar. De forma nenhuma. Estes fazem com eu seja livre para entrar e sair na hora que eu quiser e entenda. Só que, quando chego no local que deveria haver aula este se encontra completamente vazio. Simplesmente marcaram a aula para começar uma hora da tarde e neste horário, imagine só se isto é possível, os alunos ainda estão numa fila de bandejão do Restaurante Universitário, tentando almoçar. Se eu quiser ensinar é simples. Vou ter de virar Professor Mambembe. Colocar um quadro pendurado por um cordão em torno do pescoço e ir ministrar aula lá no RU. Afinal, todo professor tem que ir para onde o aluno haja aluno. De que se sustenta o transbarbarismo? De argumentos cavalares, tais como: se um sujeito troca uma aula de cálculo avançado por um prato de comida, é tal qual quem troca seu voto por uma bolsa tipo família e merece mais é ser reprovado. Tanto é assim, que nenhum ainda fez qualquer requerimento à chefia do RU para que fosse deixado seu prato de comida na sua sala de aula, é um argumento do tipo mais simplórios do transbarbarismo.   
+
+  
+
+Foi apenas um coordenador que fez? Também pensei. Já estava aquecendo alguns neurônios, futilidade com certeza nestes casos, quando recebi e-mail das Instâncias Superiores avisando que do próximo semestre em diante assim será: turno da manhã - terminará pontualmente 12:00h. Turno da tarde - começará 13:00h pontualmente. Eis um dos poderes do transbarbarismo: institucionaliza o que quiser e produze todo seu escopo legal. Com certeza não estive na reunião que aprovou tal horário, dado que, a técnica que desenvolvi para descer de ônibus urbano quando suspeito que há alguma possibilidade de assalto, não é de todo inútil. Mas, com certezas, alguns dos que lá estiveram, vestiram o seu melhor terno, engraxaram seus sapatos, limparam bem os dentes, colocaram seus melhores perfumes, fizeram um corte de cabelo impecável, colocaram o melhor livro da sua estante entre o tórax e o braço e mais que votaram: registraram seu máximo elogio a uma idéia maravilhosa. E o fazem como gente: com nome, endereço, telefone. Quiçá, o MEC não estenda logo para todas, dado que, é um passo importante para ser criado o quarto horário, já que, só manhã, tarde e noite, ainda não produz o suficiente para um índice de diplomação em curso superior que uma nação moderna deve exibir.  
+
+  
+
+Tudo contingência das circunstâncias? Esta, acho, é a mãe da imbecilidade. Vou ensinar mais tarde. Agora, todo mundo já almoçou, a digestão já foi feita, vamos lá, preciso ser o mais responsável possível: disto sairá futuros engenheiros para o engrandecimento desta nação, já me avisaram. O é quadro branco, o pincel atômico, que dura três dias de aula, custa R$ 4 por/ unidade. Só que, o quadro não tem mais que 2 metros quadrados de área útil para que eu exponha o tema. O programa da disciplina, que agora tem carga horária de 4 horas semanais, tem por conteúdo tudo que antes eram duas disciplinas. Uma de quaro horas semanais (Álgebra Linear) e a outra de 6 horas semanais ( Cálculo Vetorial). Convenhamos uma economia fabulosa: no que antes gastávamos 10 horas semanais de aula, hoje fazemos com apenas 4. Universidade que não faz assim, deveria ser processada por desperdício de recurso púbicos, é tese tipo transbarbarista.   
+
+  
+
+Um poço mais de tinta no quadro. Quando se presencia a luta, o empenho e a gana com que agentes do transbarbarismo apresentam para conseguir mais uma vaga de docente para a universidade pública, é de amolecer qualquer coração. Depois que o MEC não agüenta ante tal comoção e libera a tal desesperadamente necessária vaga, agora este se empenha mais densamente ainda para que se providencie tudo o mais rápido possível, já que correr o riso de se perder tal vaga é imenso. Quando sai o programa do concurso e se traça um círculo de 1400 km de raio centrado neste agente, só uma pessoa é capaz de atender o primeiro tópico do programa. Preciso dizer quem? Óbvio. Este só tem amigo competente e só é competente quem amigo deste for, sendo isto uma definição universal que só ele sabe. Imagine se este dormiria com quem não fosse.  
+
+  
+
+Quero apenas uma coisinha. Cópias das atas de todo concurso, inclusive da prova escrita de quem acabou de ingressar por concurso público de provas e títulos na vaga que este magnífico benemérito da universidade pública nos arranjou, para compor um livro. Agora, embora seja documento público, não é para qualquer um que quiser ver não. Você sabia que há documento público que são secretos. Pois, este tipo é mais que isto: é super secreto. Faça requerimento e protocole, que primeiro vamos consultar a NOSSA procuradoria. Que pena, diz esta em resposta, mas, segundo artigo da Declaração Universal dos Direitos da Pessoa Humana da ONU, a qual protege que algum ser humano seja submetido a qualquer ato degradante para sua dignidade como ser vivo, tal coisa não é possível.  
+
+  
+
+Quem sabe o Ministério Público Federal possa ajudar em questão de tão alta complexidade jurídica, a qual ocorre no centro do que este país tem de mais civilizado. Vou por um caminho mais simples. Solicito ao MPF-Pa em obrigar que: logo após provas de vestibulares a UFPA publique a de matemática e resolução que acha ter cada item. Não foi nem uma redação que estes acham possível de ser feita com o tema que deram. Trocando em miúdos, a resposta foi: Lamentavelmente. Mas, pela autonomia didática e científica que nossas universidades publicas gozam, a qual permite que estas em tais casos decidam o que fazer, como fazer e do jeito que convier, nada pode ser feito. A resposta tem sido diferentes pelas demais públicas do país, as quais fiz o mesmo pedido? NÂO.Lembro que é a sabedoria popular que constata: ninguém cria cobra para ser mordido.   
+
+  
+
+Quando é proposto concurso nacional para docente das federias, como fez a Sociedade Brasileira para o Progresso da Ciência, como sempre defendi, inclusive concurso único para estaduais, até para poupar um pouco da energia de alguns agentes deste, agora o mesmo vocifera coisas do tipo: ¨é um acinte com a autonomia da universitária¨, ¨um crime contra o patrimônio do povo¨, ¨Ninguém mais que eu para saber o que é melhor para minha universidade¨, ¨seria um irresponsabilidade que eu deixasse meu departamento contratar um incompetente¨, ¨nós publicamos o edital para todo Brasil, se não se candidatam é pelo simples fato de que são incompetentes¨ , etc.   
+
+  
+
+ Isto é só um pequeno quadro, nem moldura ainda há. Raro é o dia que não presencio o transbarbarismo sorrindo em vários cantos da universidade pública. Qual foi o último? Consta no boletim da nossa seção sindical: docentes do centro de educação tiveram, depois de esgotarem todos os recursos internos, de recorrerem ao Judiciário Federal para garantirem inscrição de chapa. Por não haverem anexado na ficha de inscrição comprovante da matricula SIAPE ( número de identificação geral do servidor), tiveram o pedido de inscrição indeferido.  
+
+  
+
+ São duas apenas duas faces da barbárie pintadas com cores diferentes e ambas precisam de combate? Talvez. Porém, primeiro, acredito eu, até por ética, a que é interna, para depois, até como exemplo, se possa avançar sobre a que se manifesta do portão para fora. Digo mais: uma mete a mão, puxa gatinho, te joga no chão, te ameaça aos gritos, etc. Já a transbarbárie tende a nem te tocar. Age em silêncio. Promove loucura; transparece ante tudo como normal, e zeladora da chave do hospício; sempre é legal e quando não veste uma roupa de legal, sempre há tecido, conselhos de fato, para legalizar; é guardiã da moralidade e do bem público; sabe o que é melhor para tudo e para todos. O transbarbáro atinge sua glória máxima quando consegue com que seja seu adversário quem mesmo coloque o cano do revólver no ouvido e puxe o gatinho. Jamais corre o risco de sujar seu terno novo com uma gota de sangue. Quando for o Estado no cumprimento da lei, melhor.   
+
+  
+
+ Para concluir, apresento hoje, 20 de maio/2007, tais reflexões, ante alguma possibilidade da desocupação da Reitoria da USP pelo único instrumento que resta quando pouco da razão aparece. Recurso apresentar qualquer reflexão depois que toda racionalidade tenha sido perdida, surgido um hematoma sequer ou algum espiro por gás lacrimogêneo. Nestes casos, não sei pensar, apenas oro, o que me vem na lembrança. Independe de tudo, o nosso fracasso como educadores é patente.

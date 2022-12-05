@@ -1,0 +1,11 @@
+---
+title:  A INDIGNIDADE DA POLITICA BRASILEIRA.
+date: 2006-12-18 22:00:00
+author: mariangela.santos
+debate: Salários dos Parlamentares: como definir?
+slug: a-indignidade-da-politica-brasileira
+status: publish 
+type: post
+---
+
+A sociedade está fazendo sua parte, está reagindo, de todas as formas, está acordando da apatia que identifica as massas. Mas é pouco, e parece que não está adiantando.. o que fazer quando  a justiça como instituição não cumpre seu papel? o que fazer quando chegamos ao caos da desesperança? Ir para ás ruas, bater panelas, gritar, escrever  não adianta,, a elite "democratica" está surda e cega, engessada na ganância e na pressa de  extorquir do povo sofrido que a sustenta, salários altissimos , os mais caros parlamentares do mundo. Os politicos brasileiros  desprezam o povo que deveria representar e proteger; a rica casta politica brasileira só tem um objetivo ao chegar ao poder, os seus próprios interesses, roubar tudo o que pode..em nome da lei, é claro.. tudo justificado.O que  fazer quando se chega ao desespero, como chegou a aposentada de Salvador que atacou  o deputado? Será possivel que a revolta tenha que acontecer  a tal ponto que não se tenha mais nada a fazer do que explodir, numa atitude impensada, incontida como a pobre trabalhadora que perdeu toda a esperança para fazer valer seu direito?  quantos trabalhadores mais terão que explodir em atitudes insanas, acorrentar-se nos pilares de mármore do  congresso, "solo sagrado" das execuções de mensalões e aberrações escandalosas?  Será necessário que os parlamentares e suas familias comecem a ser tornar alvos de ovos podres, pedras e perseguições do povo que deviam representar com honradez e dignidade? Este é um momento de extrema reflexão, é um momento limítrofe.Quando já não se tem mais esperança, nem confiança nas instituições democráticas que deveriam cumprir seu papel e representar o povo com ética e dignidade, abre-se historicamente caminhos para todas as saídas. O irracionalismo tomou conta das instituições democraticas brasileiras. Já não temos justiça, já não temos autoridade que faça valer as leis com ética e lisura. Qual a saída? o desespero como resposta á revolta e a indignação? será necessário o povo tornar-se igualmente irracional como as elites que o representa?

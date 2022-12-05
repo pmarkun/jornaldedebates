@@ -1,0 +1,18 @@
+---
+title: Estado, o grande vilão da Justiça.
+date: 2008-10-25 22:06:08
+author: dijalma.lacerda
+debate: A contratação de parentes para cargos públicos deve ser proibida?
+slug: estado-o-grande-vilao-da-justica
+status: publish 
+type: post
+---
+
+Estado, o grande vilão da Justiça
+ Dijalma Lacerda
+
+A Justiça do Estado de São Paulo continua, como sempre, andando a passos de tartaruga, com o sistema obstruído e o andamento dos processos simplesmente estagnado.
+Não raro, o computador do Tribunal tem uma travada brusca, e simplesmente não se tem informação alguma. Reclama-se da falta de pessoal e da não abertura de concursos para os mais diversos cargos, principalmente para as secretarias, denominação mais atual de cartórios. 
+O Poder Judiciário se ressente da falta de verba, no que tem absoluta razão, tamanha a infimez de seu orçamento o qual, na verdade, é disposto pelo Poder Executivo e aprovado pelo Poder Legislativo.O Poder Judiciário, na verdade, é o "primo pobre" dos poderes, e nenhuma autonomia possui em matéria orçamentária. Isto tudo sem dizer, ainda, que o orçamento votado este ano é inferior, numericamente, ao do ano passado, nada obstante as despesas tenham aumentado. A razão é simples: nenhum interesse tem o Poder Executivo na existência de uma Justiça célere. É que ele é o maior "freguês" do Poder Judiciário, e se tivesse que pagar de uma só vez, apenas um centésimo de sua dívida, fatalmente quebraria. Dessa forma, não será ele, Poder Executivo, quem colocará a corda no próprio pesçoso. Por sua vez se busca soluções alternativas como, por exemplo, alguns "benefícios" disponibilizados pelo Banco Nossa Caixa, cujo banco detém, hoje, o monopólio dos depósitos judiciais. Procura-se eufemizar tais "benefícios", rotulando-os de contrapartida. Nomenclatura à parte, a verdade é que o Banco Nossa Caixa também possui processos em andamento no Poder Judiciário, e tem trazido preocupação o fato de que ele é agente "favorecedor" de tal poder. Ninguém se atreve a, frontalmente, questionar a isenção do Poder Judiciário nas causas do Banco Nossa Caixa, até porque tal questionamento, se cabível, deveria ser suscitado caso a caso, em sede de exceção de suspeição. O Banco do Brasil e a Caixa Econômica Federal tambem dão contrapartidas à Justiça o Trabalho e à Justiça Federal. De uma coisa porém todos têm certeza: que o fato preocupa, preocupa. Se a preocupação tem procedência, isto é uma outra história. A mulher de Cesar dizia: - não basta ser, tem que parecer ser. Eu mesmo já defendi a contrapartida pelo Banco Nossa Caixa a favor do Poder Judiciário mercê do elevado volume que aquele detém, folgadamente, por anos a fio, de vultoso dinheiro advindo dos depósitos judiciais. Hoje, minha posição é diversa, qual seja a de que há de se cobrar energicamente do Estado, começando pelo Poder Executivo, a dotação orçamentária justa para o Poder Judiciário, e há que se dividir entre os bancos oficiais os depósitos judiciais. Mais do que isto, o Poder Judiciário haverá de ter total autonomia orçamentária, isto é, ele deverá estabelecer sua própria dotação orçamentária e usá-la conforme sua própria disposição. Isso deve ser luta de todos nós, Advogados, OAB, juízes, promotores, povo, enfim. Todavia, enquanto isso não ocorre, o Estado continua deitado em berço esplêndido, vendo a banda passar, folgado, ressonante, confiante na morosidade da Justiça.
+
+Dijalma Lacerda, 60, é Advogado militante, especialista em Direito Civil, Direito Penal, Direito Tributário e Metodologia do Ensino Universitário do Direito, foi presidente da OAB/Campinas por duas gestões, nos anos de 200,2002,2003, 2004, 2005 e 2006.

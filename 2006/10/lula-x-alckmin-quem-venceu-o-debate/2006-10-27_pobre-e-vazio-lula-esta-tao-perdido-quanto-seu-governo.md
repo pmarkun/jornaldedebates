@@ -1,0 +1,12 @@
+---
+title: Pobre e vazio lula, esta tão perdido quanto seu governo
+date: 2006-10-27 21:00:00
+author: claudio.novaes
+debate: Lula X Alckmin: quem venceu o debate?
+slug: pobre-e-vazio-lula-esta-tao-perdido-quanto-seu-governo
+status: publish 
+type: post
+---
+
+No derradeiro e último debate, o presidenciável, Lula estava completamente perdido diante as questões apresentadas peloseleitores indecisos, os quais ,so estão indecisos ainda se também forem vazios como demonstrou seu lider atual, foi uma avalanche de Alkimin sobre o Lula , o qual não conseguiu formular perguntas e muito menos responde-las sem enrolar e perder seu tempo em vão, tentou por vezes ler seu texto que pelo geito não conseguiu ou não teve competência para decorar, parecia que tava de ressaca de tanta água que tomou para não engasgar ao engolir a seco tudo que não tinha como disse de seu algaz os números.
+Ficou claro , para quem e no mínimo exclarecido que ele noda fez de concreto no seu governo , a não ser falar o que até Cabral( ele mesmo nosso descobridor do Brasil) não fez pelo Brasil sitando-o como tucano , essa até a galera foi ao delírio, meus vizinhos riram a altas gargalhadas de tal imbecilidade e ignorância falada por Lula, sem falar que ele pediu ao público que lesse uma página de um livro mas ele não se decidiu se era na 300 ou na 200(quanto ele vai ganhar sobre a venda do mesmo), o Alkimin falou e fala do que ele(pois e ele que e candidato a presidência , e não vultos do passado) fez e faz no estado em que é governador , que foi e é muito mais que o Lula fez pelo Brasil digamos a verdade, me diz aonde cresceu a classe média no na mente do demente, aonde a saúde esta melhor?Aonde a educação esta melhor?Aonde o emprego está melhor? Eu sou do estado do Rio, para quem não é , infelizmente foi o garotinho que incentivou a volta dos estaleiros em Angra e em Niteroí, antes do Lula ser presidente, ele tenta ser pai de coisas que já existiam e é para quem não esta presente e conhece do assunto, para quem mora no Ceará por exemplo não está ciente de tudo que acontece no Rio no seu cronográma como também o é para quem vive no Rio saber de tudo que se passa lá, as pessoas que leêm que se informam tem uma amostra do que acontece de principal pelo país e pelo mundo mas a grande maioria não , e infelizmente e essa grande maioria sem cultura sem pespectiva que vota no Sr Lula , para sofrimento do resto da nação, que quer um país melhor.

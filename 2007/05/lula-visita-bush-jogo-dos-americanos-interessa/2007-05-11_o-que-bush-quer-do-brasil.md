@@ -1,0 +1,17 @@
+---
+title: O que Bush quer do Brasil?
+date: 2007-05-11 21:00:00
+author: bruno.luz
+debate: Lula visita Bush: jogo dos americanos  interessa?
+slug: o-que-bush-quer-do-brasil
+status: publish 
+type: post
+---
+
+Aquecimento global. Etanol. Bush. O que essas palavras têm em comum? Em um planeta que sofre aumento da temperatura devido a um processo cíclico, nada! Mas e se esse aumento for causado pela ação humana? Então, o guardião do mundo tem que entrar em ação. E ele tem nome e bandeira: George "War" Bush. O salvador que nos livrou de um maluco que "possuía" armas químicas de destruição em massa e "tinha" planos maléficos de dominação global, Saddan Hussein. E assim é que por tentar novamente salvar o mundo (será mesmo?), o Brasil e o seu etanol estão na mira americana.  
+  
+É obvio que Bush está "preocupado" com o aquecimento global (tendo em vista que não assinou o Tratado de Kyoto). E por isso veio buscar o etanol brasileiro como forma de amenizar a intensa emissão de gás carbônico por parte dos EUA. "Não"! Ele "não" veio ao Brasil porque está sem aliados políticos no Congresso americano, ou porque é alvo de críticas da opinião pública internacional, ou teme que Chavez consiga gerar uma Revolução na América. Ele veio ao Brasil porque se importa com o mundo e quer dar "uma força" a nós brasileiros. Quer nos ajudar a vender o etanol. Afinal, produzimos menos de um bilhão de litros que os EUA. E por isso, nosso "hermano" Bush veio com a missão de nos ajudar a deixar de ser um país "atrasado" na produção de fontes alternativas de energia, mesmo que o nosso etanol seja mais barato (isto se não houvessem tarifas estadunidenses que o encarecessem) e eficiente do que o americano (100% do gás carbônico emitido pela queima do etanol pode ser absorvido pelas plantações de cana diferente das demais fontes de produção).  
+  
+É verdade! O território frio e temperado norte-americano não é favorável ao plantio da cana, mandioca e outros produtos tropicais que se mostram melhores na produção de etanol do que o milho. O álcool do milho demora mais tempo para ser produzido e a produtividade é pequena se comparado aos sete a oito mil litros produzidos por hectare de cana plantada. Mas é impensável que esse seria um motivo para os americanos e seu presidente quererem o nosso território. É só olhar a guerra do Iraque e ver que os americanos "não" invadem e tomam territórios em busca de riquezas, a exemplo do petróleo! O que Bush realmente quer é criar aqui milhões de novos postos de trabalho que não sejam semi-escravos, como o trabalho dos bóias-frias e favorecer a agricultura familiar e a pequena propriedade. E "não", favorecer o latifúndio produtor para exportação e ricos proprietários nativos que são a favor da política imperialista americana. (E o pior é que há quem acredite nas boas intenções do presidente ianque).  
+  
+Por trás dos desejos altruístas do guardião mundial está o velho sentimento imperialista de tirar da "colônia" e não lhe dar nada em troca. A vinda de Bush, então, tem dois objetivos claros. Primeiro é garantir o controle da comercialização do etanol brasileiro através de contratos desiguais, não reduzindo as tarifas que incidem sobre o produto brasileiro exportado e de forma prejudicial explorando o nosso território. Depois é transformar o Brasil em seu maior "aliado" contra Chavez e tentar dividir a América Latina politicamente seguindo a Doutrina do dividir para conquistar. Precisamos, portanto, abrir os olhos e não acreditar que acordos feitos com os EUA irão mudar nossas vidas para a melhor!

@@ -1,0 +1,11 @@
+---
+title: Rastreamento dos recursos financeiro
+date: 2007-01-25 22:00:00
+author: elias.silva2
+debate: Como impedir a exploração da fé?
+slug: rastreamento-dos-recursos-financeiro
+status: publish 
+type: post
+---
+
+As igrejas ( catolicas, evangelicas protestantes, etc ) é e sempre foram instrumento de manobra da sociedade. Manipulando, mentindo e usando o seu poder para beneficiar a um bando de aproveitadores da boa fé humana, usando da desgraça alheia como forma de cativar rebanhos. Jesus Cristo no ensinou a ter humildade a compreenção, mas que se ve por ai, não é isso não, se abre mais igreja do que padaria ( cada uma mais bonita e imponente que a outra, é só visitar a AV Celso Garcia ). De onde vem esse dinheiro, infelizmente o ser humano só lembra de DEUS quando a situação esta critica, e em pleno seculo 21, o maior fragelo de nossa sociedade é o social, aqui no Brasil nosso regime de governo não é o democratico e sim o FELDALISMO (entra ano, passa decadas e são sempre as mesmas familias que estão no poder ), vivemos num regime de semi-escravidão, para grande maioria do nosso povo, seria melhor a escravidão, pois se tinha trabalho, comida, roupa e um lugar para dormir. Mas vão falar que não havia respeito ao ser humano ele era mau tratado era visto com preconceito, ai eu pergunto e hoje, ha alguma diferença de tratamento por parte das nossas elites. Voltado a questão anterior, deve se saber da origem dos recursos , pois para mim igrejas é uma forma facil de lavar dinheiro, ja que não se justifica a origem dele, é doação. Receita para se lavar dinheiro: abra uma igreja com um nome sugestivo ( Deus é isso ou aquilo) coloque alguns testas de ferro ( não se pode deixar rastro ) promenta a salvação, venda a ideia que resolverão todos os problemas pessoais ( desemprego, doenças,e todos os males de nossa sociedade ), sendo assim, ira atrair muitas almas aflitas a procura de milagres para os seus problemas, depois é só ir ao banco e fazer os depositos, afinal todas essas almas que frequentaram a igreja deram dizimo, pois dinheiro para elas não é problema. Só não ve quem não quer.que isso é uma forma de esquentar dinheiro, so´DEUS sabe de onde vem esse dinheiro e para onde vai. Um dia justiça ira ser feita, aqui ou em outro plano, esse aproveitadores da boa fé, irão pagar muito caro, pois não se joga com a alma humana.

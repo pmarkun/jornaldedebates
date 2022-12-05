@@ -1,0 +1,11 @@
+---
+title: "AMAZONIA, CASA DE NINGUEM"
+date: 2008-01-28 22:00:00
+author: EDSON MILTON RIBEIRO PAES
+debate: Como frear a destruição das nossas florestas?
+slug: amazonia-casa-de-ninguem
+status: publish 
+type: post
+---
+
+A Amazonia corre perigo sim, mas não é só de desmatamento, o perigo maior é a ocupação Americana em solo Amazonico, em outro tema falei sobre a irmã Doroty, aquela que foi assassinada, expliquei que não concordo com violencias mas o que uma Americana fazia em solo Brasileiro???? Assim como centenas de outros que lá estão, e que ja dominaram toda a Amazonia, Brasileiros tem que pedir licença para andar em estradas "Brasileiras", os Americanos controlam tudo com a anuencia da FUNAI, então a destruição acaba se dando até por vingança de trabalhadores, é sabido que a Amazonia é rica em petroleo e demais minérios o que eu fico intrigado é com a pacividade dos politicos Brasileiros, sobretudo nosso Min das Relações Exteriores, nada se fala, em mapas Região Amazonica ja consta anexado este territorio aos Estados Unidos, que não se faz de desentendido pois nos cursos de primeiro grau é ensinado aos seus alunos que a Amazonia pertence aos Americanos, e no livro de DAVID NORMAN, INTRODUÇÃO A GEOGRAFIA isso fica bem claro, mostrando toda a Amazonia como território Americano, essa impralidade vai acabar provocando uma guerrilha, pois moradores da região (que providenciaram a morte de DOROTY STEIN) viram que não surtiu nenhum efeito, e ja começam a se mobilizar para uma ação mais eficaz, Essa "irmã" nada mais era que um pano de fundo para as ações Americanas em solo Brasileiro, e fazendeiros patriotas resolveram fazer justiça,(de maneira errada) com as proprias mãos, não é assim, temos que nos mobilisar, ingressar na ONU e informar da invasão que estamos sendo vitimas, nós Brasileiros não podemos aceitar tamanha afronta, temos hoje que pedir licença para Americano para poder trafegar em solo Brasileiro??? isso ja é demais, quando a destruição, ja que é terra de ninguem, e que os Americanos estão tomando conta, os piratas da madeira estão saqueando tudo o que podem, se vão levar na mão grande, que levem a terra pelada.Eu particularmente não sou a favor disso, mas o cidadão que nasceu lá esta por demais desmotivado coms os descasos do Governo Brasileiro.

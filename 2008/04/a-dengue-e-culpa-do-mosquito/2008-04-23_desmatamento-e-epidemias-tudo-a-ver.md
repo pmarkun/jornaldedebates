@@ -1,0 +1,11 @@
+---
+title: DESMATAMENTO E EPIDEMIAS : TUDO A VER
+date: 2008-04-23 21:00:00
+author: gabriel.bertran
+debate: A dengue é culpa do mosquito?
+slug: desmatamento-e-epidemias-tudo-a-ver
+status: publish 
+type: post
+---
+
+É sabido por todos que quando o meio-ambiente está em equilíbrio, com a biodiversidade mantida, todos os seres ali no local convivem em harmonia, alimentando-se uns dos outros e, com isso, controlando-se mutuamente. Tem algo a ver com a Teoria de Gaia, na qual todo o planeta é um ser vivo que se auto-equilibra. Mas existe uma espécime, no caso a humana, capaz de mexer profundamente com este equilíbrio. A voracidade do ser humando já tornou-se uma das forças destruidoras da natureza.Isso faz com que, ao eliminar amplas áreas florestais, como está ocorrendo cada vez mais rápido na Amazônia, ocorra a proliferação de determinados organismos (em grande parte perigosos), devido à morte de seus predadores naturais.Desde as primeiras incursões na Amazônia, a malária sempre aterrorizou as populações humanas. Acontece que, sem os pássaros ou aranhas que se alimentavam dos mosquitos, suas populações crescem em demasia.O aumento, a cada ano que passa, da epidemia de dengue no Brasil com toda certeza deve-se a este desequilíbrio. E sabemos que as epidemias não pararão por aí. Basta ver o exemplo da África, onde os desmatamentos também são imensos e vírus como o Ebola e o Marburg (ainda sem cura) proliferam-se sem controle.Na Amazônia podem estar escondidos vírus piores que a dengue, prestes a serem "libertados" pelas mãos dos homens. Há cerca de 10 anos, um grupo de militares em missão na Amazônia contraiu uma doença desconhecida até hoje. E este é só um exemplo...O Brasil já é o 13º país com maior risco de epidemias no mundo, segundo estudo realizado pelo Departamento de Geografia da Universidade de São Paulo. E todos os outros países estudados que apresentam este risco encontram-se abaixo do trópico de câncer, ou seja, nas regiões mais quentes do planeta e mais ricas em biodiversidade. Mas quando esta biodiversidade é violentada, como está sendo, as conseqüências são imprevisíveis.O homem deveria parar de mexer com as florestas tropicais, pois quanto mais alterá-las, mais sofrerá as conseqüências...

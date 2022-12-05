@@ -1,0 +1,75 @@
+---
+title: CHE: -   "Vim ao Brasil rever o meu bom amigo, Presidente Jânio Quadros." 
+date: 2007-10-06 21:00:00
+author: nelson.valente
+debate: Por que Che Guevara continua sendo um mito?
+slug: che-vim-ao-brasil-rever-o-meu-bom-amigo-presidente-janio-quadros
+status: publish 
+type: post
+---
+
+A GRÃ-CRUZ DE CHE GUEVARA  
+
+ (\*) Nelson Valente  
+
+CHE: - "Vim ao Brasil rever o meu bom amigo, Presidente Jânio Quadros."   
+
+0 primeiro encontro foi em Havana, no mês de maio de 1960 Jânio era apenas um candidato à Presidência da República, e o cubano, presidente do Banco Nacional do seu país. Reencontraram-se em condições diferentes. Jânio Quadros é o Presidente do Brasil e Ernesto Che Guevara, Ministro da Indústria e Comércio de Cuba. Vinha este de Punta del Este. Recebera do Sr. Clemente Mariani o convite oficial do Governo brasileiro para uma passagem por Brasília, onde Jânio Quadros gostaria de avistar-se com ele:   
+
+ - "Terei muita satisfação em rever o meu amigo  
+
+Jânio" - respondeu.   
+
+Chegou-se a noticiar que o Presidente da República iria ao aeroporto recebê-lo. A notícia não era verdadeira. Isso implicaria em quebra de protocolo, uma vez que "Che" não era chefe de Estado.  
+
+Mas foi recebido em Brasília por várias autoridades. Grande número de populares estava presente. No encontro do Palácio do Planalto, ele e Jânio conversaram inicialmente a sós. Embora nada tenha transpirado da conversa, circulou depois no Palácio a notícia de que o ministro cubano havia agradecido vivamente ao Presidente a posição assumida pelo Brasil em favor da autodeterminação de Cuba. Exprimindo suas simpatias pessoais pelo grande colaborador de Fidel Castro, JQ condecorou o revolucionário cubano com a Grã-Cruz da Ordem do Cruzeiro do Sul, em breve cerimônia, a que tiveram acesso os jornalistas e auxiliares de seu gabinete.  
+
+Nesse momento, ainda não se tinha conhecimento de que uma séria crise se estava delineando nos bastidores da política nacional. Mais tarde irromperiam os seus primeiros sinais. Algumas horas antes da chegada do Britânia, em que viajara "Che" Guevara, tinha pousado no aeroporto militar de Brasília um jatinho que conduzira o Governador da Guanabara.  
+
+Garlos Lacerda rumou diretamente ao encontro do Presidente Jânio Quadros, depois de dizer aos jornalistas que viera tra­tar de importante assunto enquanto Ernesto Guevara foi para o Brasília Palace Hotel, após afirmar aos repórteres que vinha rever "um grande amigo". Pediu licença para descansar, pois o relógio já passava da meia noite e tinha audiência com o Presidente da República às primeiras horas da manhã seguinte. Além do mais, estava exausto pelos esforços despendidos na Conferência de Pun­ta del Este, na inesperada visita a Frondizi e nos incidentes à sua saida de Montevidéu.  
+
+A essa altura, a portas trancadas, aprofundava-se a cri­se entre Jânio Quadros e Carlos Lacerda. A conversa entre ambos iniciou-se amistosa e serena, com frases bem humoradas de parte a parte. O bom humor começou a desaparecer quando tiveram que tratar do ponto nevrálgico: o Presidente sabia que o Governador no dia seguinte iria entregar as chaves da cidade do Rio de Ja­neiro ao anticastrista Manuel Verona e o Governador, por sua vez, também sabia que o Presidente, dali algumas horas, condecoraria, com a Ordem do Cruzeiro do Sul, o castrista Che Guevara.  
+
+A conversa, então, atingiu tom ríspido. Além de queixar-se do "esvaziamento" da Guanabara, o Governador disse francamente que não podia concordar com os rumos da política externa que o Brasil estava seguindo e muito menos se conformava com a outorga de tal condecoração a um homem que declarou poucos dias antes, em Montevidéu, procurara sabotar a ajuda norte-americana ao Nordeste. O Presidente argumentou que as diretrizes da política internacional eram atribuições específicas do seu cargo. Desejava exercê-las em toda a plenitude e não admitia interferência.  
+
+Quando Carlos Lacerda saiu da sala, visivelmente aborrecido, a crise estava bem configurada e ele, bastante decidido a adotar o que chamaria de uma "atitude grave".  
+
+Do palácio presidencial o Governador dirigiu-se à residência do Ministro da Justiça, com quem conferenciou até às quatro horas da madrugada. Passaram em revista sobretudo a repercussão que o dissídio entre os palácios da Guanabara e alvorada estava provocando nas forças armadas, já com rumores de conspirações e golpes. Este segundo encontro só serviu para convencer o Governador ainda mais da necessidade de adotar a "grave atitude". Estava sinceramente convicto de que nenhum entendimento seria mais possível entre ele e o presidente Jânio Quadros: declarou-se, então, decidido a renunciar ao Governo, para ficar com os movimentos livres e liderar a oposição ao que considera uma perigosa guinada do Brasil em direção à órbita soviética.  
+
+Do aeroporto o Governador telefonou ao Deputado Adauto Cardoso, comunicando a sua decisão. Recebendo um apelo para reconsiderá-la, embora permanecesse mais algumas horas em Brasília recusou-se a atendê-lo e às 7 horas e 30 minutos, tomou o avião para o Rio.   
+
+Neste exato momento o Presidente da República dizia, ao colocar em Che Guevara a faixa da Grã-Cruz da Ordem Nacional do Cruzeiro do Sul:  
+
+- "Vossa Excelência tem manifestado em várias oportunidades o desejo de estrei­tar relações econômicas e culturais com o povo brasileiro. Esse é, também o nosso propósito e a nossa deliberação, assumida no contato que tive com o governo e o povo cubanos. O Governo e o povo brasileiro manifestam nosso apreço com essa alta condecoração.´´  
+
+Guevara respondeu:  
+
+- "Como revolucionário, sinto-me profun­damente honrado. Não posso considerar esta honra como pessoal, mas feita à nossa revolução, ao nosso Governo e ao nosso povo."  
+
+Carlos Lacerda voava então para o Rio onde chegou às 10 horas, rumando para a sua residência, a fim de reunir-se com as­sesores militares e políticos aos quais comunicou a sua decisão.  
+
+Simultaneamente, Jânio Quadros embarcava em Brasília para inaugurar um cais de minérios em Vitória e Ernesto Guevara almoçava no Riacho Fundo com o Prefeito do Distrito Federal, Paulo de Tarso. Em seguida sobrevoou a cidade num helicóptero e embarcou logo depois para Cuba. Deixava no Brasil, atrás de si, o rastilho de uma crise política quase tão grave quanto a que provocara na Argentina.  
+
+No outro pólo da agitação, Carlos Lacerda conferenciava com Clemente Mariani e mandava dois assessores para representá­-lo no desembarque de Jânio Quadros, que chegou de Vitória às 14 horas.  
+
+A assessoria de imprensa do Palácio Guanabara comunicou oficialmente aos jornalistas que Carlos Lacerda iria entregar dentro de poucos minutos as chaves da cidade ao Manuel Verona. Já aí o palácio apresentava em seus corredores todos os sinto­mas da gravidade da situação: secretários chegavam e saíam, au­tomóveis partiam em disparada, entravam os generais Cordeiro de Faria e Emílio Ribas, chefe do EMFA e do Estado Maior do Exército. A um repórter que lhe perguntou sobre sua renúncia, o Go­vernador respondeu:  
+
+- "Não a confirmo nem a desminto."  
+
+Pouco tempo depois, entregando as chaves do Rio ao líder anticastrista, declarou:  
+
+- "Acentuo o respeito que temos pela autodeterminação do povo cubano, decidido a libertar-se da interferência estrangeira que ocupa ministérios numa Cuba já ocupada."  
+
+Aquelas palavras eram a réplica ostensiva à faixa que o presidente Jânio Quadros entregara pela manhã ao Ernesto Guevara.  
+
+Durante toda a noite de sábado a crise passou a ter dois pontos de fixação: os palácios da Guanabara e das Laranjeiras. Emissários e telefonemas estabeleciam a ligação entre ambos. A­té que afinal, às 21:30h o carro do Governador saiu em direção à residência do Presidente.  
+
+Apos este segundo encontro, a crise amainou. O Governador voltou ao Guanabara, onde já se encontrava, entre outros, o general Ademar de Queiroz, e comunicou que, pelo menos por enquanto, a sua renúncia ficaria em suspenso. Não pretendia concretizá-la de imediato, face à conversa que acabara de ter com Jânio Quadros, durante a qual haviam conseguido estabelecer uma trégua.  
+
+Já eram quase 3 horas da madrugada de domingo quando Carlos Lacerda deixou o Guanabara de volta ao seu apartamento. Enquanto isto, Jânio Quadros já repousava nas Laranjeiras, após um dia exaustivo, que começara de manhã bem cedo em Brasília, continuara ao meio dia em Vitória e se prolongara pela noite adentro no Rio de Janeiro.  
+
+Dentro de poucas horas embarcaria ele com sua família de volta a São Paulo e Brasília. Havia assentado com Carlos Lacerda que viajariam juntos no Viscount, mas o Governador, que passou pelo aeroporto poucos minutos antes do embarque presidencial, argumentou que tinha de receber seu filho de volta da Europa e não podia ausentar-se do Rio. Além disso, tinha também, que falar na abertura do Quinto Congresso da ORIT, onde, na presença do Ministro do Trabalho, reafirmou a sua disposição de renunciar ao governo da Guanabara para ir à rua, a fim de "evitar que as esperanças do povo brasileiro sejam frustradas e desviadas de seus objetivos por uma política de capitulações sucessivas com as tiranias comunistas".  
+
+Eram 18 horas de domingo. Esse discurso do Governador provava que a crise entre ele e o Presidente da República fora apenas provisoriamente superada.  
+
+(\*) é professor universitário

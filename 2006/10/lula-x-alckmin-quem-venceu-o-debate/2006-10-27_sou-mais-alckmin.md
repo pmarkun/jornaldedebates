@@ -1,0 +1,11 @@
+---
+title: SOU MAIS ALCKMIN
+date: 2006-10-27 21:00:00
+author: edegard.araujo
+debate: Lula X Alckmin: quem venceu o debate?
+slug: sou-mais-alckmin
+status: publish 
+type: post
+---
+
+CAROS AMIGOS, HOJÊ É SABADO E HONTEM VIMOS O DEBATE NA GLOBO ONDE PODEMOSVER QUE O LULA SEM TER CONDIÇÕES DE ACUSAR E CRIAR FANTOCHES COMO O DA PRIVATIZAÇÃO FICA SEM ASSUNTO,POIS ELE DEU AS ESTATAIS PARA O PT ARRANCAR DINHEIRO DELAS .

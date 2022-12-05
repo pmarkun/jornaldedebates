@@ -1,0 +1,19 @@
+---
+title: Talvez a uma Solução mais quem sabera usar
+date: 2007-01-25 22:00:00
+author: arnoldo.alcantara
+debate: Como impedir a exploração da fé?
+slug: talvez-a-uma-solucao-mais-quem-sabera-usar
+status: publish 
+type: post
+---
+
+De o seu dinheiro a Orfanatos, Azilos, a quem você acha que precisa perto da sua casa porque igreja nenhuma irá até a casa dessa pessoa oferecer alguma ajuda voce pode dar seu dinheiro todinho durante 11 meses de voce precisar de 0,50 centevos pra enteirar pra pagar alguma conta ve se alguma igreja te da se Pastor, Bispo, Padre, Macumbeiro, Duvido não acredito que ele pode ser seu maior amigo mais te dar uma moeda pra te ajudar pra compra um pão.è Uma idiotice apontar a culpa para os outros lados se você é culpado, mesmo que as nossas leis não dão jeito nisso algum dia eles teram que pagar mesmo que sendo depois de mortos isso que se faz com o dinheiro de pessoas pobres e umildes que geralmente são as mais exploradas mesmo porque os ricos não são burros de dar o dinheiro deles para outras pessoas enrriqueserem as suas custas.  
+Está absolutamente certo que as igrejas vivem do dinheiro que os fieis dão para a igreja mais é claro que o dinheiro tem de pagar as contas e todas as dispesas da mesma, mesmo assim depois que esse dinheiro foi repassado poderia haver algum meio de fazer um obra social, que pelo que eu me lembre nem Renascer em Cristo e Nem Universal tem alguma coisa nessa area.  
+Posso dizer que a igreja Deus e Amor tem poucos projetos desse tipo mais as cedes de igreja eu sei que tem mesmo que as dos bairros não tenham e eu tenho certeza que não.  
+Um caso alem de ser Piloto é um dos mais Bem Planejados Muito bem administrado e não Involve toda a Igreja eu estou falando de uma, uma só igreja catolica que tem a sua frente um padre que tambem é um lider comunitario e o mesmo quer sempre ajudar as familias que envolvem o bairro onde ele e as familias moram to falando da Obra Social Dom Bosco Em Itaquera Na Cidade de São Paulo que Claro como toda empresa tem seus gastos e seus ganhos mais você ve o que acontece com o dinheiro.  
+Eles investem em mais de 40 cursos diferentes que envolvem muitas areas de educação e de desenvolvimento empresarial, não vou dar a lista dos cursos mais são muitos alem deles o Padre que se chama Rosalvino Lutou varias vezes para conseguir com governo , prefeitura varias obras de desenvolvimento na bairro de itaquera que neste exato momento esta sofrendo uma das maiores mudanças de todos os tempos, casa, ruas, avenidas, escolas e tem muita coisa que eu não sei nem posso falar mais sobre isso. Mais isso eu posso garantir que acontece e sei que faz parte da igreja catolica mesmo que não seja toda ela e eu nem sou catolico nem gosto se eu fosse a alguma igreja acho que seria a Universal do Reino de Deus mais lá eu nunca dei 1 centavo e nunca darei acho melhor ir até um orfanato ou então azilo e doar alimento nem mesmo dinheiro porque as pessoas desviam o dinheiro que voce deu quem vai saber em quantas maos o seu dinheiro vai passar e quanto dele não vai chegar até onde deveria então pense bem.   
+ELES SÒ PENSAM EM SI MESMOS E QUEREM IRRIQUECER COM SEU DINHEIRO VEJA SE TEN ALGUMA PESSOA BEM RICA POR LA DANDO SEUS MILHARES DE DOLARES E REAIS ELES SÓ PEGAM DE VOCÊ QUE PENSA QUE UM REAL NEM VAI FAZER FALTA E NEM VAI IRRIQUECER O BOLSO DELES MAIS 1 MILHÃO DE PESSOAS IMBECIS COMO VOCÊ DÃO ESSE UM REAL IMAGINA SÓ POR DIA 1 MILHÃO DE PESSOAS COMO VOCÊ UM IDIOTA QUE TA IRRIQUECENDO ALGUEM QUE JA NÃO ERA POBRE E FUDIDO COMO VOCÊ.  
+TCHAU, ESSES ASSUNTOS ME REVOLTAM SEMPRE, DESCULPA É QUE EU TENHO QUE TRABALHA PRA PAGAR MINHA MIZERA CONTA DE 26 REAIS QUE JA VENCEU E NINGUEM QUE EU CONHEÇO QUER PAGAR PRA MIM.  
+ENTÃO O BURRO DE CARGA AQUI VAI TER DE DAR UMA DE JUMENTO PRA GANHA UMA MIZERAS MUEDAS.   
+

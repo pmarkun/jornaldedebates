@@ -1,0 +1,13 @@
+---
+title: RELACIONAMENTO
+date: 2006-12-04 22:00:00
+author: conceicao.andrade
+debate: Como viver junto?
+slug: relacionamento
+status: publish 
+type: post
+---
+
+Relacionamento é o movimento do esforço, da vontade para cativar o outro, criando laços. O mundo das relações é fantástico, apesar de universal, envolve o individual nos seus processos, que envolvem movimentos ou ações, ora positivos e ora negativos. Os positivos como: escutar o outro, senti-lo, percebê-lo, confiar, apoiá-lo, aproximar e rir com o outro, e, negativos, como contrariar o outro, brigar, chorar de raiva pelo outro, duvidar, entre outros comportamentos que o caracterizam. Esses movimentos, não significam julgamento de valor de bom ou mal em termos de relação, mas movimentos existenciais no ser humano, que resultam em dois processos no mundo das relações dentro da visão sistêmica: o da SIMETRIA - quando os dois têm personalidade forte e competem o poder -, e, o da COMPLEMENTARIEDADE - quando um cede mais facilemnet que o outro. Em uma relação saudável, a aplicação desses processos sistêmicos, devem ser alternados,ora um é simétrico, e, ora, o outro é complementar, porque ninguém é estático o tempo todo quando se trata de comportar-se.Para saber a hora de atuar bem em cada um, é preciso muita MATURIDADE EMOCIONAL que caracteriza a relação perfeita, como em termos de casal, a "alma gêmea" que não existe, mas a forma madura de relacionar que a expressa.   
+
+O relacionamento altera os cálculos da matemática, ou seja, a soma de 1 + 1 = 2, na relação passa a ser 1(uma pessoa) + 1 (outra pessoa)+ 1( a relação) = 3, segundo Phillip Caillé. É preciso noção de coletividade para entender a relação, onde todos precisamos de todos, que é uma cultura UNIVERSAL, por isso, o fundamental é o DIÁLOGO, pois não temos um cérebro feito "bola de cristal" que adivinha tudo, mas com diálogo e respeito ao outro, surge a intuição que flui bem a relação. Não é obrigação aceitar o comportamento do outro, mas é obrigação compreender , negociar, respeitar a maneira de ser de cada um e trocar experiências, pois o afeto é uma construção do dia a dia, com base na troca vivenciada. Portanto, a verdadeira relação se consuma pela TROCA, onde não há dono um do outro, mas parceiro no caminhar para a vida. É preciso ter um novo olhar para as relações, que são abrangentes e cada uma com sua especificidade. Não se aceita mais, por exemplo dizer "meu marido" ou "minha mulher" ou "meu filho(a)" que conota a posse, mas companheiros de viver a vida, onde o único dono de cada um é o Criador do Universo, a Inteligência Suprema que a maioria chama de DEUS.

@@ -1,0 +1,64 @@
+---
+title: Legítimo direito!
+date: 2009-10-19 20:08:08
+author: Miguel D Avila
+debate: Quais os verdadeiros valores da sociedade?
+slug: legitimo-direito
+status: publish 
+type: post
+---
+
+No Brasil, e de resto em toda parte, os bons vivem conforme uma dignidade pessoal, enquanto os maus aquadrilham-se, conluiam, conspiram, atraiçoam, e acumpliciam-se. Aos maus, vilania e perfídia são de suas naturezas, e tendem ao natural para a canalhocracia, crime organizado, máfia...
+
+A fantasia, ou a alienação, sempre, desde a infância, e também aos adultos, põe-nos diante de uma forma mágica de combater o ruim, o danoso, o mal. É dessa forma que temos, como um dos exemplos, a história dos Três Mosqueteiros, em que os bons se juntam e lutam unidos. Não é assim socialmente que se manifestam e reagem as pessoas boas, as pessoas do bem, e podemos dizer que elas não são organizadas, não se agrupam. 
+
+Lemas como um por todos e todos por um, unidos ninguém nos vencerá, são, é muito mais, conceitos e princípios que instintivamente acompanham os maus: - cafajestes; - machos protetores; - canalhas; - psicopatas; - facciosos; - facínoras; - bandidos... Aqueles que podemos dizer são corja de agentes falsos, fingidos, farsantes, fraudadores, fementidos, fétidos, ferais, facciosos, facínoras, flagiciosos, frenopatas, f... 
+
+Em nosso país o homem por vezes vê-se desumanizado, excluído de cidadania, defenestrado fronte a Lei, destituído da dignidade... Em nosso país temos até uma torpe e inconstitucional aberração legislativa feita para discriminações, facciosidades, barbáries e monstruosidades. Isso mesmo, falo da podre Lei Maria da Penha! Quer-se institucionalizar um império sexista de incriminações forjadas, calúnias, barbáries, atrocidades, tortura, terrorismo, nazismo... 
+
+Acaba acontecendo de homens serem postos diante de canalhocracia, crime organizado e máfia, submetidos a canalhocratas dentro da Justiça, e patifes e facínoras de diversos setores, grupos classistas, movimentos organizados, instituições não governamentais, que atuam comungando um vultoso rol de obscuros interesses, e um gigantesco esquema de perversões e perversidades. Há as pessoas honestas, são a maioria, que pensam em fazer justa justiça com Justiça limpa, mas que são postas a conviver com a canalhocracia paralela, e institucionalizada, da indústria da violência doméstica e do divórcio.
+
+Esse sistema degenerado de atuação sobre problemas domésticos de casais, já não encontra mais limites nem para casos em que a presunção certa do homem é de vítima e autor de uma ação cível, e em que a parte Ré é manifestamente culpada. É o caso que abordo a seguir, começando com uma pergunta que não quer calar: - Como pode um magistrado proferir sentença absurda, escandalosamente oposta a toda e qualquer noção de justiça? Temos cada vez mais visto isso neste Brasil! 
+
+Ainda podemos falar que certas excrências, extremos de despautério são coisas raras, mas no âmbito das sentenças que envolvem problemas ou crimes com conotações de gênero, isto é, frutos de relacionamento entre homem e mulher, especialmente os tipificados como domésticos ou vinculados a casais, a iniqüidade no julgamento dessas questões desandou. E o que se poderia esperar, se temos uma torpe e inconstitucional Lei Maria da Penha, preconizando bandidagem policial e judicial, e canalhice e psicopatia familiar e social contra o masculino.
+
+Tudo está sendo posto sob uma suja ótica de vitimização da mulher e de estigmatização do homem como ofensor e agressor; e pior, ainda, com todos os fatos tomados sempre unilateralmente só no que for, ou mesmo produzindo-se imposturas, contra o homem. Ademais, há uma canalhocracia desregrada e desenfreada que se lança sobre casais, quando deveria ser inverso, e terem encaminhamento de justiça. 
+
+Chega-se a medonhos procedimentos facinorosos, e à mulher ser feita acima do bem e do mal, inimputável, e, mais, tutelada pela canalhocracia institucionalizada, em que se quer se aceita acusá-la, e menos julgá-la. Desdobra-se em a mulher ser usada para ações facciosas, e facinorosas, contra o homem alvejado. Não se pode ter a lei como tinhoso mecanismo de injustiça infernal! Além disso, todos sabemos os vis interesses que estão por trás da indústria da violência doméstica e do divórcio.
+
+Seguirei falando de um caso que podemos ter como correlato ao que enfoquei nos parágrafos anteriores. Como podemos, o cidadão ou a sociedade, nos vermos diante de afirmações nojentas, apostas ao justo pleito na Justiça de uma pessoa, em busca de reparação a males pessoais e danos morais que lhe foram causados. Procedeu o cidadão, que estou tomando como referência, em ação judicial pautado pelo que de melhor se poderia esperar em sentido de civilismo, civilização. 
+
+Um homem envolver-se em adultério com a esposa de outro, não causa males e danos ao homem, e à sua família, vítima de traição sexual e de danos, ou até destruição, à união matrimonial que concorrem em tal circunstância? Engraçado, é que, noutra situação, sendo o homem quem cometeu adultério, as mesmas autoridades capazes de iniqüidade sexista a favor de mulheres, serão as que mais arrolarão condenações, e mais serão implacáveis e pesadas em suas sentenças contra o masculino. 
+
+Nem vou aqui desfilar tudo que se poderia falar que seja causa de males e danos a uma pessoa, e a uma família, a traição sexual, pois isso é desnecessário... Deixo por conta do leitor deste artigo meditar...
+
+Como se pode vir a saber que uma sentença de magistrado, proferiu que: - “o papel das mulheres mudou ao longo dos séculos”, e afirma que aquelas que se sentem desprezadas pelos companheiros podem tomar "dois caminhos mais comuns". "Umas se fecham, ficam deprimidas, envelhecem, 'murcham' - outras, buscam o prazer em outros olhos (que não as viram jovens), outros braços, outros beijos". "Daí um dia o marido relapso descobre que outro teve a sua mulher e quer matá-lo - ou seja, aquele que tirou sua dignidade de marido, de posseiro e o transformou num solene corno!". ...“não há nenhum fato que caracterize algum sofrimento de ordem moral, intima e psicológica de conduta praticada pelo réu...". 
+
+Na verdade, temos o que até sempre tem sido sujo preconceito de Psicologia, usado quando serve para transferir culpas a quem é a vítima de traição sexual, especialmente se isso beneficiar uma mulher. Nada pode ser mais ignóbil que dizer que quem comete traição sexual, o fez por carência de responsabilidade de quem foi traído. Há até uma sórdida expressão: - “Quem não tem competência, abre concorrência”. O verdadeiro é que quem trai sexualmente o faz por um desvio moral pessoal, por uma falha de caráter própria de quem se dá ao adultério.
+
+Todos sabemos, comprovadamente, que quem é traído sexualmente é duplamente vítima, pois quem trai desenvolve características pessoais perversas e pervertidas. É quem trai, que, podemos dizer, sempre relega o relacionamento sexual no âmbito do lar, com o parceiro conjugal. Mais que isso, quem trai sexualmente adquire uma maldade psicológica, em que passa a assumir uma desvalia, quando não desprezo, e até mesmo pior, pela sua companhia matrimonial.
+
+Quem trai sexualmente, tende inclusive para uma desvalorização de todos os aspectos domésticos. Passar a viver uma vida dupla, de namoros, romances e atos sexuais com terceiros, leva a pessoa que trai a degradar-se, tornar-se mentirosa, dissimulada, maldosa e malvada; e a pessoa adúltera ainda satisfazendo-se com um complexo de poderosa e superior. Isso em situações de relacionamento normal, pois advindo a crise de relacionamento, com a descoberta de traições sexuais, a pessoa que trai torna-se vilã com a pessoa traída, e pode inclusive atingir níveis de maldade que significam psicopatia.
+
+Enfim... Essa é a condição, situação, e circunstância, em que se tem que quem errou, quem agiu mal, é quem traiu, e nunca quem foi traído. Então porque a sociedade inverte, de uma forma tão podre, os papéis de quem é desprezível? Todos sabemos, a baixeza com que todos nós, em termos gerais, somos dados a vilipendiar quem possamos acusar de chifrudo, corno...
+
+Ao que parece, essa manifestação social, é uma reação em que outrora se quis escrever certo por linhas tortas. Fala-se que a idealização injuriosa e infamante, que hoje ainda pomos na idealização de “guampudo(a)” sobre quem é traído, nasceu durante a Idade Média, e assim se fazia para forçar que o homem traído castigasse a mulher adúltera. 
+
+Também hoje essa noção de intervenção social sobre o casal, em que um dos cônjuges tenha cometido adultério, já não pode mais ser aceita. Cada casal deve ter a possibilidade de tratar as suas questões sexuais, inclusive o cometimento de traição sexual por uma das partes conjugais, como questão privativa e até íntima, sem que haja podres interferências que hoje vem sendo preconizadas por agentes e organizações com maus interesses. 
+
+Intervenção de terceiros, salvo se necessária diante de situação criminal, em questões conjugais dessa natureza, invariavelmente leva a péssimas consequências. O casal que se vê diante de tão delicada situação, precisa ter a liberdade de lidar com as dificuldades pertinentes de seu caso, e ter autonomia e tempo para desenvolver procedimentos e processos incontornáveis, seja de conciliação, seja de divórcio. Ninguém deveria intrometer-se num quadro de mágoas e ressentimentos entre os cônjuges, que só aos mesmos cabem as decisões com que irão ter que superar o mal que recaiu sobre ambas as partes matrimoniais. 
+
+Então, no caso em que citei como exemplo, não só se teve um absurdo ataque à Justiça, por força de injustiça cometida, em não reconhecer legítima ação judicial de danos morais, como ainda se produziu um pesado dano moral ao autor da ação. O autor da ação é taxado como: - Marido relapso, que descobre que outro teve a sua mulher, tirou sua dignidade de marido, e o transformou num solene corno!. Não há como fugir da saliência de que isso esteja ressaltado na sentença proferida. 
+
+O dano moral que se havia produzido com a traição sexual da esposa, e que era legítimo ao marido traído ser reparado por danos morais como vítima de um terceiro que se serviu de adultério da sua esposa, foi multiplicado, na sentença judicial. Penso que se tem uma ignomínia, um enorme dano moral, do qual igualmente cabe uma ação cível contra o Estado, lides consorte o magistrado. 
+
+Antigamente os estupradores costumavam acercar-se de suas vítimas, não só para repetirem sua violência, mas também para humilhar e intimidar, escarnecendo e espezinhando-as. Também, e isso sei lá se não até hoje, os racistas tripudiavam e rejubilavam-se de seus antepassados terem sido escravocratas, e assim lançavam sobre as pessoas com ascendência negra, como vexação, que fossem inferiores e desprezíveis pela escravidão de gerações passadas. 
+
+É algo assim, e sem dúvida um abuso, ou até estupro, moral, uma violência pessoal, o que ainda hoje fazemos com a mentalidade com que se trata a imagem de alguém que sofreu traição sexual. Faz-se ofensa abjeta não só com denominações como chifrudo, guampudo, corno, mas também com injuriosas falações, e até infames ataques à vítima da pessoa que cometeu um deslize sexual ou, na maioria dos casos, é leviana sexualmente, ou, ainda, é de baixa moralidade. Há uma insólita inversão de valores. 
+
+O que vemos é que em todos os lugares, todas as pessoas dão-se a impor menos valia, desrespeito e vilania contra quem transformam em alvos, objetos, de chacotas ou de agressões, ignomínias, por ter sido vítima de traição sexual. Está na hora de isso mudar. Quem está em erro é quem trai sexualmente, e assim agiu mal, é ofensor, é agressor. Mesmo que tomemos minimamente a censura a quem comete adultério, ainda temos, por si só já falta grave, a quebra de confiança, e a desonestidade num pacto tão significante como é a acordo matrimonial.
+
+Temos mesmo que ver os maus rirem-se de suas perversões e perversidades? Temos que continuar a fazer de quem é vítima de traição sexual, alvo de aviltamento por terceiros, que o tomem como pessoa em desmerecimento e em execração? O que acha o leitor? Penso que se deve meditar sobre essa questão...
+
+Ao que parece o processo judicial em questão neste artigo, envolvia também outras questões, que decorreram dos problemas em que se viu o casal atingido por traição sexual de uma das partes, porém o aspecto em si, e que em tudo pareceu mau julgamento final, da ação cível de danos morais, está bem claro. Deixo, a seguir, um link para a matéria publicada na Internet, e que serviu com embasamento para este artigo que estou postando aqui no Jornal de Debates: http://noticias.uol.com.br/cotidiano/2009/10/15/ult5772u5687.jhtm
+Para saber mais: http://www1.folha.uol.com.br/folha/cotidiano/ult95u638730.shtml

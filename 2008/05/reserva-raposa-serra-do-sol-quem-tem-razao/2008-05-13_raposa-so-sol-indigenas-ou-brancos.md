@@ -1,0 +1,33 @@
+---
+title: RAPOSA SO SOL INDIGENAS OU BRANCOS?
+date: 2008-05-13 21:00:00
+author: celio.lasmar
+debate: Reserva Raposa Serra do Sol: quem tem razão?
+slug: raposa-so-sol-indigenas-ou-brancos
+status: publish 
+type: post
+---
+
+Resolvi raciocinar em cima deste tema apesar de não conhecer in loco a região e não possuir um profundo conhecimento do problema, mas tem certas analises que qualquer um com bom senso pode fazer sobre um tema sem medo de errar muito, desde que se atenha a certos princípios básicos da sociedade que o regulam.  
+
+Ao que me parece pelo lido na imprensa existe uma demanda entre plantadores de arroz e indígenas em uma área do território nacional denominada raposa do sol situada em Roraima e que pelo entendido trata-se de uma reserva cuja área depende ainda de demarcação legal, apesar de ser uma reserva reconhecida por natureza como pertencente a uma ou mais tribos indígenas que lá habitam talvez até mesmo antes da transformação de seus territórios em possessão portuguesa e em território brasileiro atualmente.  
+
+Ora existem aí então vários fatos que podemos inferir à luz da atual legislação indígena nacional, sendo o índio considerado incapaz e estando sob a tutela do Estado - coisa da qual sou totalmente contra e explicarei porque mais adiante - é responsabilidade do Estado Brasileiro através dos órgãos competentes garantir seu direito à vida e seu direito à terra que por conseqüência natural também deve lhe caber, assim podemos inferir que diante do exposto pela imprensa os indígenas devem ser os detentores da terra, até porque já era denominada de reserva indígena e este era um fato sabido por todos os envolvidos sem sombra de dúvida.  
+
+Em sendo uma reserva é preciso, portanto, perguntar o que foram fazer lá estes arrozeiros? Ora como se pode inferir de imediato foram efetuar o que nós brancos costumamos chamar de grilagem de terras, e que normalmente é feito ou em terras de propriedade firme, mas cuja descendência desconhece a existência, ou em terras de propriedade da União, incluso aí Estados e Municípios. Ora li pela mesma imprensa que vem cobrindo o caso que existe uma oposição dos grileiros e do comando militar da Amazônia à demarcação continua desta área, e de parte também do Governador do Estado. De um lado temos o comando militar da Amazônia dizendo que a área na mão dos índios dificultaria a fiscalização da fronteira, De outro pelo inferido nas reportagens, os grileiros querendo legitimar grilagem e receber indenização do Povo brasileiro por benfeitorias praticadas caso tenham que deixar a área, e ainda de outro um Governador de Estado dizendo que a demarcação das terras e sua destinação aos índios pôe em risco a soberania nacional. Ora tudo isso cheira mal de meu ponto de vista, se não vejamos:  
+
+1) Existe por acaso algum país fronteiriço ou não na região ameaçando invadir e se apossar da área da reserva caso ela seja demarcada como previsto?  
+
+2) Teria ainda algum país fronteiriço peito para tal?  
+
+3) Poderiam os indígenas vender suas terras depois de demarcadas para alguma potencia estrangeira?  
+
+4) Uma vez demarcada a reserva como se pretende poderiam os indígenas impedir a vigilância de nossas fronteiras pelo comando militar da Amazônia?   
+
+A resposta à primeira pergunta é sem sombra de dúvida um não. À segunda também acho que não, pois as consequências seriam nefastas, à terceira também é não já que estão sob a custódia do Estado e à quarta também é não já que como estão sob a tutela do Estado e mesmo que neste caso não o tivessem e fossem cidadãos brasileiros comuns não poderiam impedir a atuação das forças armadas em nenhuma hipótese para salvaguardar a segurança e os interesses nacionais na região.  
+
+Assim sendo creio que o que está verdadeiramente por trás dessa disputa toda é interesse de grupos que se aproveitaram em algum lugar no passado da fraqueza dos povos indígenas e da inoperância e até mesmo diria da conivência dos agentes fiscalizadores do Estado para se apossarem de terras que não lhes pertenciam, com o intuito futuro de tirar partido da situação, e o que é pior, exigirem da sociedade brasileira constituída indenizações milionárias indevidas por coisa que nunca lhes pertenceu, e que em muitos casos temos visto, por absurdo que pareça, serem concedidas com o aval da Justiça. Assim, de meu ponto de vista o que se vê tanto de parte do Govêrno do Estado de Roraima, como de parte do comando militar da 11ª região ("se não me engano") é apoio a interesses de gente grande que está por trás da legitimação da posse de terras que nunca lhes pertenceram e de usufruir à custa do conjunto de sua sociedade de benesses indevidas. E tenho certeza também de que não é gente pequena não, o coitado do Zé agricultor familiar da região não tem inteligência, conhecimento de causa e muito menos cacife pra grilar extensas quantidades de terra e investir em cima, pra no futuro sabedor das consequências tirar partido da situação em cima do erário público, isso é coisa de gente grande e com ramificações na estrutura governamental, e que deve ser veementemente combatida pelo conjunto da sociedade brasileira organizada.  
+
+Quanto ao fato de até hoje o índio ser considerado incapaz pelo Estado, creio que ta na hora de mudar isso, pois este estágio já não cabe mais, esse princípio cumpriu muito mal durante o período de sua criação até os dias atuais, creio que caberia agora garantir o direito à terra às etnias indígenas em nosso País, demarcá-las, e passarmos a tratar o índio como cidadão brasileiro normal, com todos os direitos e deveres, o que não impede de forma nenhuma a preservação de sua cultura, pois a continuarem como estão estarão destinados à extinção já que a evolução não compactua com este processo artificial, é chegada a hora de dar propriedade à terra ao Índio de uma vez por todas pondo fim a todas as demandas atualmente pendentes, carteira de identidade, titulo de eleitor e direitos e deveres iguais, e a partir de então passariam a faze parte em definitivo como membros efetivos de nossa sociedade, a qual também agora deverá ser a deles, já que não há volta ao passado. Acabaríamos assim com o gasto inútil com a manutenção de estruturas governamentais que só consomem dinheiro público e não prestam nenhum serviço nem aos povos indígenas e nem à sociedade, e cuja atuação normalmente volta e meia está envolta em corrupção.  
+
+Quero aqui deixar claro que esta é uma opinião baseada nos fatos publicados pela imprensa nacional sobre o assunto e que, portanto, se aqui estiver cometendo alguma injustiça peço que o injustiçado faça a devida correção. A democracia existe justamente para isso.

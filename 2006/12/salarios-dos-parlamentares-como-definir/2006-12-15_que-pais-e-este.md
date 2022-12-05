@@ -1,0 +1,11 @@
+---
+title: QUE PAIS É ESTE?
+date: 2006-12-15 22:00:00
+author: maria.rodrigues
+debate: Salários dos Parlamentares: como definir?
+slug: que-pais-e-este
+status: publish 
+type: post
+---
+
+Nós" povão" temos que tomar uma atitude para que tais fatos não voltem a acontecer. precisamos fazer várias mobilizações para mudarmos várias situações. O povo que elegeu o atual presidente da república é o povo que recebe vantagens de todas as ordens. Podemos citar como exemplo altos cargos no serviço público, incluindo as mordomias individuais, que representam muito mais que altos salários. Tanto faz no federal, estadual e municipal. Para cada cargo desse a representatividade de voto é de no mínimo dois votos. Para cada bolsa família, distribuída nos rincões mais pobres do País representa, no mínimo mais treis votos. Todos nós que temos acesso aos meios de comunicacão sabemos perfeitamente que o populismo do presidente ganhou eleição. Não adiantou nada a imprensa falada e escrita denunciar o mensalão,que sempre existiu e continuará existindo,porque a imagem que temos de nossos políticos é de que todo político é desonesto. Pessoas de bem acham que jamais poderiam ser candidatos porque teriam que corromper e serem corrompidos para sobreviverem em qualquer esfera da política. Temos que mudar essa situação porque a tendência é piorar. O poder legislativo decide o que fazer com o orçamento e ninguém pode mudar e isso ocorre com o Judiciário e com o Executivo. No Executivo o Presidente decide os aumentos mas tem que encaminhar para o Legislativo aprovar ou não. Na minha opinião o o mesmo deveria acontecer com o Legislativo e com o Judiciário.Poderia ser criado um outro Poder fiscalizador e que tivesse como principal tarefa aprovar as contas e os gastos de todas as naturezas dos outros treis poderes. Teríamos, então, os Poderes Executivo, Legislativo, Judiciário e o Poder Controlador.Eliminaríamos o Tribunal de Contas da União, a Controladoria Geral da União e os gastos seriam aprovados ou não em plenário, com a presença de público. 0s membros desse novo Poder seriam eleitos pelo povo, com mandatos de quatro anos, não sendo permitida a reeleição em hipótese alguma, o mesmo acontecendo nos outros Poderes. Reeleição jamais em Poder algum. Tese que devemos defender com garra e para isso precisamos de uma grande mobilização nacional.

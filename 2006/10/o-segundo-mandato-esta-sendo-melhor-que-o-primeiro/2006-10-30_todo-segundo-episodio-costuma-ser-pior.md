@@ -1,0 +1,11 @@
+---
+title: TODO SEGUNDO EPISÓDIO COSTUMA SER PIOR
+date: 2006-10-30 21:00:00
+author: teng.sing
+debate: O segundo mandato está sendo melhor que o primeiro?
+slug: todo-segundo-episodio-costuma-ser-pior
+status: publish 
+type: post
+---
+
+Historicamente, os segundos mandatos costumam ser piores. Isto acontece por vários motivos.Primeiros mandatos sempre são vistos com mais tolerância, como se fosse dar uma chance para o acerto. Sempre há posições a melhorar no primeiro mandato, pois se um presidente na oposição foi eleito é porque houve erros no governo anterior. Lula teve essa sorte. Os meados do governo FHC foram um desastre, com forte desvalorização do real e risco iminente de recessão. Assim qualquer governo que assumisse, teria a grande chance de melhorar a situação. Mesmo porque a piora teve também influência na incerteza da comunidade mundial em relação a uma possível mandato Lula.Esse segundo mandato de Lula já não teve essa crise, e também não dá sinais de que haverá muitas mudanças na economia ou na forma de governo. A economia vai manter tendência a crescer míseros 2% ao ano, a inflação vai ficar controlada e os juros vão continuar altos.Com a reeleição de Lula, e sem grandes nomes para o PT tentar se manter no poder, Lula provavelmente vai "descansar" nesse mandato. Não haverá objetivos a alcançar no final do mandato, assim, a tendência é de um governo burocrático, sem grandes novidades.A grande preocupação é o saqueamento do Tesouro Nacional, como já está sendo visto no primeiro mandato. São os últimos 4 anos que o PT tem para saquear o máximo para poder manter o partido e suas ramificações por mais tempo. Preparem-se para ver manchetes e mais manchetes de escândalos envolvendo membros do PT.Além da inércia de Lula, iremos também assistir uma guerra civil dentro do próprio PT, para ver quem deve ser o indicado para a sucessão do chefe. Serão mais e mais cenas incríveis de insalubriedade política.Tudo isso se não houver uma recessão mundial, prevista dentro desses quatro anos de segundo mandato. Ou uma crise mundial sem precedentes com ameaças constantes de guerras e atentados. Pior, o Brasil não tem se preparado para isso.Bem, detesto ser pessimista, mas é o que pode-se prever nos próximos 4 anos.Não me resta mais nada a não ser desejar boa sorte para o  presidente Lula e para todos nós!!!!

@@ -1,0 +1,47 @@
+---
+title: O MST E O JORNALISMO HOMICIDA
+date: 2009-10-07 09:50:38
+author: fabio.ribeiro2
+debate: Quais os verdadeiros valores da sociedade?
+slug: o-mst-e-o-jornalismo-homicida
+status: publish 
+type: post
+---
+
+Semana passada o JN tentou encurralar o governo em razão da visita diplomática do Presidente do Irã http://www.observatoriodaimprensa.com.br/artigos.asp?cod=558FDS008 . Esta semana tenta fazer o mesmo a propósito do MST. 
+
+No dia 06/10/2009, jornalistas, ruralistas e o presidente do STF voltaram a exigir no JN (Rede Globo) a supressão do subsídio do MST, alegando que movimentos sociais que praticam crimes não podem receber dinheiro público. A nova intervenção jurismidiática de Gilmar Mendes foi veiculada após a exibição das imagens de um suposto integrante do MST usar um trator para derrubar milhares de pés de laranja na fazenda de uma agroindustria invadida.
+
+É preocupante a virulência do JN em relação ao incidente. As imagens veiculadas no JN consistem de uma tomada aérea que poderia ter sido feita em qualquer lugar, não necessariamente na agroindustria invadida. O operador do trator não foi entrevistado pelos jornalistas globais, nem filmado junto com os integrantes do MST. Portanto, o telespectador não tem condições de saber se ele era realmente um militante sem terra ou alguém pago para fazer aquilo com o propósito de desqualificar o MST.
+
+A reação do senhor Gilmar Mendes foi, no mínimo, intempestiva e juridicamente inoportuna. A Constituição brasileira consagra o princípio da liberdade de consciência. Portanto, no Brasil não existe nem pode existir movimento político ou social criminoso. Não é crime participar do MST, nem ser simpatizante dos ruralistas que tentam reservar suas eternas capitanias fundiárias. 
+
+Além disto, é preciso enfatizar que o Direito Penal brasileiro não pune a participação política ou a consciência de classe dos militantes do MST, mas apenas ações criminosas. No Brasil é considerado crime a conduta típica, ou seja, aquela que foi praticada por uma pessoa determinada com violação de norma penal específica. Os crimes cometidos por uma pessoa não se comunicam aos integrantes de uma coletividade porque cada um só pode ser considerado culpado pelos atos que pessoalmente praticou. Se o senhor Gilmar Mendes ainda não aprendeu isto não deveria estar no STF, mas num banco universitária.
+
+Mensuradas com o devido cuidado, as palavras do Presidente do STF chegam a ser macabras. Usando o maior e mais importante veículo jornalístico televisado, o Presidente do STF considerou criminoso um movimento social sem que isto seja juridicamente possível. Por via reflexa, Gilmar Mendes dá a entender que todo militante do MST ou simpatizante do movimento também é criminoso. Em razão desta condenação genérica, que não foi feita num processo (com contraditório, direito a advogado, produção de provas e julgamento válido por uma autoridade judiciária competente), os militantes do MST e simpatizantes do movimento tiveram seus direitos constitucionais suprimidos por alguém cuja missão é justamente ser o guardião da constituição. Esta abusiva supressão de direitos civis como que autoriza e incentiva a vingança privada dos ruralistas.
+
+Ao ouvir as declarações do Presidente do STF lembrei imediatamente das palavras de Jacques Sémelin (PURIFICAR E DESTRUIR, Difel, 2009):
+
+"Em princípio, o papel do Estado é o de proteger os cidadãos, como explicam inúmeros autores de ciência política. Com a concordância dos indivíduos – que aceitam, então obedecer -, o Estado lhes concede segurança. Mas nos casos estudados, ele passou a não dar mais essa garantia a todos os cidadãos. Ele se tornou assassino e protetor de assassinos. Quem haveria de poder, então, conter a violência?"
+
+É preocupante a histeria que está sendo criada em torno das ações MST. A Constituição garante o direito de propriedade, mas expressamente assegura que a mesma deve atender a uma função social. Além disto, no sistema constitucional brasileiro o direito á vida ainda é um valor maior do que o direito de propriedade. Ao transformar um movimento que tem legitimidade política e constitucional em crime o que a mídia, os ruralistas e o Presidente do STF querem? Legitimar a mortandade no campo? Pistoleiros a soldo de ruralistas tem sido e ainda é um fato corriqueiro nos sertões do Brasil. Trabalhadores rurais e sem terras tem sido abatidos a tiros pela polícia e por pistoleiros há décadas. Curiosamente, o senhor Gilmar Mendes nunca se disse preocupado com os homicídios cometidos a mando dos senhores da terra. 
+
+Segundo o citado autor Jacques Sémelin (PURIFICAR E DESTRUIR, Difel, 2009) os genocídios praticados na Alemanha (contra os judeus), Ruanda (contra os tutsis) e Servia (contra kosovares e croatas) foram fomentados pelos discursos incendiários dos líderes políticos (Hitler, Habyarimana e Milosevic). Mas em todos os casos o discurso sacrificial só conseguiu alcançar seu propósito em razão da propaganda.
+
+"A manipulação das emoções, ocupa, dessa forma, um lugar central na instauração de tais poderes, mas o que vai sustentar e desenvolver esse estado emocional é a propaganda. Ela, necessariamente, acompanha e reforça o estabelecimento desses sistemas políticos."
+
+Um pouco mais adiante o estudioso francês explica que:
+
+"O princípio básico é sempre o mesmo: fabricar emoção. Entenda-se: suscitar o medo, a desconfiança, o ressentimento e, assim, provocar, como reação, a vigilância, o orgulho, a vingança. Um aparelho de propaganda é, antes de tudo, uma máquina de fabricar emoção pública, a exemplo dos líderes, a quem ela reveza e amplifica o que dizem. É trabalhando com a emoção que ela almeja alcançar a adesão do público: 'Não tem escolha', é o que ela diz 'temos, todos, que nos defender dessa gente. É uma questão de identidade: nossa sobrevivência está em jogo.' E é por onde a propaganda ataca o pensamento: 'Diante da ameaça comum, devemos nos mostrar mais fortes e afirmar o poder da nossa identidade.' A propaganda procura impor a todos uma interpretação do mundo, apresentada como 'vital', a partir do grupo a que ela pertence. Dessa forma, o envolvimento emocional do publico, rapidamente, se estende ao envolvimento ideológico." 
+
+Ao julgar publicamente o MST um movimento criminoso o Presidente do STF amplificou a propaganda jornalística e ruralista contra o movimento. Isto tende a amortecer o senso crítico da população brasileira provocando um aumento dos atos violentos praticados por pistoleiros a soldo dos senhores da terra. Quantos cadáveres serão necessários para que os artífices desta tragédia anunciada parem de fazer o que estão fazendo? Quando os sem terra começarem a morrer às centenas e milhares jornalistas, ruralistas e o Presidente do STF vão sentar no banco dos réus ao lado dos pistoleiros?
+
+Aqueles que consideram que os sem terra incomodam tem que lembrar que eles também têm direitos que devem ser preservados e defendidos pelo STF. Além disto, os militantes e simpatizantes do MST não são proprietários de uma rede de TV que atinge dezenas de milhões de brasileiros. Ao contrário dos ruralistas e jornalistas da Globo, o MST não esta em condições de incendiar a população brasileira. Os jornalistas não tem o direito de fazer a cobertura dos incidentes no campo de forma a jogar a população contra um legítimo movimento popular, ainda mais mediante a supressão dos direitos constitucionais de seus militantes pelo Presidente do STF. Fazer isto para fomentar uma CPI é uma excelente forma de incentivar a ação de milícias a soldo dos ruralistas sob os aplausos da população enraivecida. 
+
+Quem tem poder econômico e controle da mídia deve se lembrar sempre que o Brasil tem leis e instituições para fazer com que estas sejam cumpridas. Se um militante do MST cometeu um crime, o barulho excessivo é desnecessário. O caso é de Policia e os policiais deverão intervir dentro da Lei. O cidadão infrator será processado e eventualmente condenado após exercer seu direito de defesa e produzir as provas que tiver. 
+
+Se alguém quer lutar pela reforma agrária ou defender os latifúndios isto faz parte do jogo democrático. A democracia é um regime político que não preconiza a supressão violenta dos conflitos. Ao contrário, a democracia estimula os conflitos e adota formas de solução pacífica dos mesmos. Portanto, não é nada democrático o JN tomar partido dos ruralistas. É ainda menos democrático o Presidente do STF ir a televisão para suprimir os direitos constitucionais dos militantes e simpatizantes do MST dizendo que todos são indistintamente criminosos (dando a entender que podem ser abatidos a tiros). 
+
+Muito embora eu não goste dos seus discursos e propostas, o senhor Ronaldo Caiado tem direito de defender seu latifundio hereditário. Mas ninguém pode fazer isto amordaçando os sem terra ou jogando a população contra eles. O JN e o Gilmar Mendes devem parar de "...suscitar o medo, a desconfiança, o ressentimento e, assim, provocar, como reação, a vigilância, o orgulho, a vingança." Caso contrário acabarão no banco dos réus da história.
+
+Finalizo dando os parabéns a Rede Bandeirantes. Impossível deixar de notar a diferença entre a cobertura do episódio pelo JN da Globo e Jornal da Band. Na Bandeirantes a destruição dos pés de laranja pelo militante do MST foi tratado exatamente como deveria: um incidente menor que exige apenas a atuação das autoridades de forma a fazer cumprir a Lei.

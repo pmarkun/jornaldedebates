@@ -1,0 +1,11 @@
+---
+title: Artes Marciais: "Caminho suave" para o encontro consigo mesmo
+date: 2007-12-20 22:00:00
+author: carlos.conceicao
+debate: As artes marciais incentivam a violência?
+slug: artes-marciais-caminho-suave-para-o-encontro-consigo-mesmo
+status: publish 
+type: post
+---
+
+As artes marciais foram criadas para o aprimoramento físico e moral dos indivíduos que as pratica, não podemos generalizar e usar um fato isolado para simplesmente desmoralizar os praticantes das nobres artes, que em sua maioria pregam antes de mais nada o conhecimento interior e a auto-defesa.      É bem verdade que algumas artes marciais foram ao longo do tempo perdendo o seu conteúdo filosófico, influenciadas pela busca indiscriminada da vitória, típicas dos ocidentais.    Estas influências maléficas levaram  alguns mestres de artes marciais ao treinamento extremo de seus pupilos, contrariando os verdadeiros objetivos da artes marciais.      Podemos tomar como exemplo o Judô, criada pelo mestre Jigoro Kano no século 19, que tem como objetivo  a educação corporal e espiritual e seu significa é  "CAMINHO SUAVE".    Hoje o Judô é praticado por milhões de pessoas em todo o mundo.       O  bom judoca sabe que seu espírito deve estar preparado não só para a vitória, mas também para superar os momentos de extrema dificuldade.    O judoca deve: "lutar para se aperfeiçoar, e não aperfeiçoar-se para lutar";    "Conhecer-se e dominar-se é triunfar.";     "Somente se aproxima da perfeição quem a procura com constância ,sabedoria e, sobretudo, com humildade ";    "Saber cada dia um pouco mais e usa-lo todos os dias para o bem, é o caminho de todo judoca".        Fatos isolados, não podem denegrir a imagem dos esportes de luta. Infelizmente a nossa sociedade está pontuada de elementos que sofrem  e cometem erros graves e não buscam de forma correta o seu aprimoramento intelectual, moral e filosófica. Estes indivíduos devem ser banidos dos esportes e pagar os seus erros com a justiça.         Devemos orientar os jovens para que busquem nas artes marciais o complemento para a sua formação física, moral e espiritual, com responsabilidade de quem as divulga e pratica, elas serão úteis para a educação integral de nossa juventude.               caurosa.blog.terra.com.br
